@@ -2,7 +2,7 @@
 title: First Post
 author: Liz Ye
 date: 2022-05-12
-category: Jekyll
+category: testings
 layout: post
 ---
 

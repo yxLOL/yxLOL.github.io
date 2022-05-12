@@ -1,11 +1,10 @@
 ---
 title: The China Debate Final Revision Notes
 date: 2022-05-12
-category: Jekyll
+category: notes
 layout: post
 tags: resources
 ---
-
 
 ## Involution
 
