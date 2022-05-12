@@ -6,4 +6,7 @@ category: Jekyll
 layout: post
 ---
 
-You can contact me through [email](yxiao03@wm.edu) or dm me on @y_x@mastodon.social. 
+You can contact me through email(yxiao03@wm.edu) or dm me on mastodon @y_x@mastodon.social. 
+
+Normal response time would be within 48 hours.
+
