@@ -37,7 +37,7 @@ I *do not* include any trackers or analytic tools on this website, though these 
 
 ## Final Thoughts
 
-Thanks for bearing with me. If you are interested in contributing to the site/any random projects I'm working on, you can find my contact information [here](https://yxlol.github.io/jekyll-gitbook/pages/contact/). Any comments and suggestions for resources are welcome, and while I'm really not the best person to answer anything, feel free to drop questions. 
+Thanks for bearing with me. If you are interested in contributing to the site/any random projects I'm working on, you can find my contact information [here](https://yxlol.github.io/yx/pages/contact/). Any comments and suggestions for resources are welcome, and while I'm really not the best person to answer anything, feel free to drop questions. 
 
 I hope you have a great day. 
 

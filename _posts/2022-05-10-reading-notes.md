@@ -1,5 +1,5 @@
 ---
-title: With Chinese Characteristics (Reading Notes)
+title: 中国特色读书笔记合集
 date: 2022-05-10
 category: notes
 layout: post
