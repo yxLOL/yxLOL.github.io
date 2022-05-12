@@ -1,5 +1,5 @@
 ---
-title: 
+title: With Chinese Characteristics (Reading Notes)
 date: 2022-05-10
 category: Jekyll
 layout: post
