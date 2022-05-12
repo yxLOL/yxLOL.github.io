@@ -2,8 +2,9 @@
 title: Chinese Resources
 author: Liz Ye
 date: 2022-05-12
-category: Jekyll
+category: resource
 layout: post
+tags: resources
 ---
 
 ## Pronounciation

@@ -1,7 +1,7 @@
 ---
 title: With Chinese Characteristics (Reading Notes)
 date: 2022-05-10
-category: Jekyll
+category: notes
 layout: post
 ---
 
