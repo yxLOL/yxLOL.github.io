@@ -1,5 +1,5 @@
 ---
-title: Welcome Page
+title: Preface
 layout: home
 ---
 
@@ -14,17 +14,17 @@ I still don't know how to properly introduce myself, so just regard me as a norm
 
 I am an RA in [AidData](aiddata.org) and a volunteer who offers technical (and emotional) support in the [Bray School](https://brayschool.pages.wm.edu/). As a joint research project with my long-lost American sister Kaleea, I'm working on [scraping eviction data](https://github.com/yxlol/Virginia-Eviction) from online court records using Selenium. My Github page is [here](https://github.com/yxlol). 
 
-In my free time I read about China and other random topics and watch documentaries. I love biking around if it's safe and the weathr is nice. I also have many penpals which I would probably reference to a lot. Most of the hobbies (besides biking) I have now were started during my gap year in 2020-2021. 
+In my free time I read about China and other random topics and watch documentaries. I love biking around if it's safe and the weather is nice. I also have many penpals which I would probably reference to a lot. Most of the hobbies (besides biking) I have now were started during my gap year in 2020-2021. 
 
-You are more than welcome to ask me math questions, but keep in mind I am not actually an expert on it, contrary to what you think who I am. (just kidding, but feel free to ask.)
+You are more than welcome to ask me math questions, but keep in mind I am not actually an expert on it, contrary to what you think. (just kidding, but feel free to ask.)
 
 ## Big Picture
 
 My primary goal is to use this site to organize the notes and resources that I find potentially significant enough to share. For convenience this site would include some class materials for Chinese 101 TA sessions. 
 
- I might also include the personal programming projects, but that wouldn't be the primary usage of the site.
+I might also include the personal programming projects, but that wouldn't be the primary usage of the site.
 
- ## Copyrights and Privacy
+## Copyrights and Privacy
 Feel free to contact me if you are not certain. In general, as part of the CC BY-SA 4.0 liscense, you can share and use the materials as long as it's not for commercial use, and I would not be responsible for any consequences resulted from using them.
 
 I *do not* include any trackers or analytic tools on this website, although those can be easily integrated. 
