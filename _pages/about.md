@@ -1,9 +1,9 @@
 ---
 title: About
-author: Tao He
+author: Liz Ye
 date: 2022-02-04
 category: Jekyll
 layout: post
 ---
 
-This is an about page.
+Welcome to my notebook about...everything.
