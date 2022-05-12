@@ -12,7 +12,7 @@ You can find the github repo to the Jekyll theme [here](https://github.com/sighi
 
 I still don't know how to properly introduce myself, so just regard me as a normal human being. I am a second-year computer science student (with limited coding experience... but I'm working on it) and I do love math as every Chinese does (not really, I'm the only one in my friend group). I'm a beginner in German and have native fluency in mandarin, so you would see three languages on this webiste and I would not apologize for that.
 
-I am an RA in [AidData](aiddata.org) and a volunteer who offers technical (and emotional) support in the [Bray School](https://brayschool.pages.wm.edu/). As a joint research project with my long-lost American sister Kaleea, I'm working on [scraping eviction data](https://github.com/yxlol/Virginia-Eviction) from online court records using Selenium. My Github page is [here](https://github.com/yxlol). 
+I am an RA in [AidData](aiddata.org) and a volunteer who offers technical (and emotional) support in the [Bray School](https://brayschool.pages.wm.edu/). As a collaborative community research project with my long-lost American sister Kaleea Korunka, I'm working on [scraping eviction data](https://github.com/yxlol/Virginia-Eviction) from online court records using Selenium. My Github page is [here](https://github.com/yxlol). 
 
 In my free time I read about China and other random topics and watch documentaries. I love biking around if it's safe and the weather is nice. I also have many penpals which I would probably reference to a lot. Most of the hobbies (besides biking) I have now were started during my gap year in 2020-2021. 
 
