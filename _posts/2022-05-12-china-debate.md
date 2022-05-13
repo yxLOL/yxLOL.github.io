@@ -56,9 +56,16 @@ Non-fiction stories
 
 > “Paradoxically, incrementalism works not just because it is the safest route but because it is the fastest way to fulfill social change in China”
 
-*NGO2.0 *
+- Incrementalism: (from Britannica) Policies result from a process of interaction and mutual adaptation. 
 
-> Everybody a donor 
+- Walking around instead of walking through obstacles. 
+
+*NGO2.0*
+
+> Everybody a donor “人人可公益”， “和谐社会”
+
+- 2012 微公益 by sina.com & 腾讯月捐 -- bypass traditional donation. 
+- Shadow advocacy （午餐计划）a very inactive way of engaging in activism 
 
 ## Population Planning 计划生育
 
@@ -72,6 +79,12 @@ Non-fiction stories
 
 
 ## Xinjiang
+
+*Digital Enclosure*
+
+### Terror Capitalism by Darren Tyler
+
+### 伊力哈木:当前新疆民族问题的现状及建议
 
 ## American Factory
 

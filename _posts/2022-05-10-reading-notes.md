@@ -49,7 +49,7 @@ Author:  Peter Hessler
 
 - How did he confirm this though. Also there's not a lot of details about it. I guess it is always hard...
 
-> When teaching Orwell, I often thought about why such books aren’t considered a threat to the Party. In the novels of the Dystopian Trilogy, futuristic societies distract and control individuals by various methods: the continuous war and rewritten history of “1984,” the sex and soma drugs of “Brave New World,” the surgical removal of human imagination in “We.”** But none of these books anticipates how useful competition can be in sustaining a long-term authoritarian state.** In China, nationalistic propaganda might be effective for children and other people at a lower level, but there’s a tacit understanding that it won’t work as well for the highly educated. As long as these individuals have opportunities to advance and improve their lives, they are less likely to oppose authority. And the system doesn’t need to be hermetically sealed in the manner of “1984.” The vast majority of Chinese students who go abroad choose to return—for them, it’s as simple as yinyefeishi. If they were truly afraid of choking, they would remain in the United States.
+> When teaching Orwell, I often thought about why such books aren’t considered a threat to the Party. In the novels of the Dystopian Trilogy, futuristic societies distract and control individuals by various methods: the continuous war and rewritten history of “1984,” the sex and soma drugs of “Brave New World,” the surgical removal of human imagination in “We.” **But none of these books anticipates how useful competition can be in sustaining a long-term authoritarian state.** In China, nationalistic propaganda might be effective for children and other people at a lower level, but there’s a tacit understanding that it won’t work as well for the highly educated. As long as these individuals have opportunities to advance and improve their lives, they are less likely to oppose authority. And the system doesn’t need to be hermetically sealed in the manner of “1984.” The vast majority of Chinese students who go abroad choose to return—for them, it’s as simple as yinyefeishi. If they were truly afraid of choking, they would remain in the United States.
 
 > And there’s a point at which competition becomes a highly effective distraction. For most of my students, the greatest worry didn’t seem to be classroom security cameras or other instruments of state control—it was the thought of all those talented young people around them.
 
@@ -96,3 +96,18 @@ by Darren Byler, Sept.1, 2021
    > In Xinjiang, dispossession is not just about a lack of compensation, it is about a process of illegalizing traditions and turning sacred land into property.
 
    > These three elements — material dispossession, institutional domination, and settler occupation — are what established Xinjiang as a contemporary settler colony that was internal to the Chinese state.
+
+*Related Materials Mentioned in the Article*
+- [新疆少数民族流动人口法律意识的现状分析](https://xinjiangdocumentation.sites.olt.ubc.ca/files/2020/11/%E6%96%B0%E7%96%86%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E6%B5%81%E5%8A%A8%E4%BA%BA%E5%8F%A3%E6%B3%95%E5%BE%8B%E6%84%8F%E8%AF%86%E7%9A%84%E7%8E%B0%E7%8A%B6%E5%88%86%E6%9E%90_%E6%AD%A6%E4%B8%BD%E4%B8%BD1.pdf)
+
+## New Regulations on Algorithms
+
+**One month after the implementation of new regulations on algorithms, how many personalized recommendation services still intrude on personal information?**
+
+Link to translation is [here](https://docs.google.com/document/d/1CCqTuyNwKzCDCPygQ8LGu3PrHQ2dZXdV4bf_-3catVY/edit#), and the original article is [here](https://mp.weixin.qq.com/s/TfaeivjJQ65sW3LAWLzx5Q?). I found it on [ChinaAI Newsletter](https://chinai.substack.com/)
+
+> Since the implementation of the regulations, here’s what some companies have done:
+> - WeChat, Meituan, Bilibili, Douyin, Taobao, Weibo, and Toutiao have added buttons for users to **turn off personalized recommendation functions**.
+> - Some apps now let users **view the specific personal info collected by the app as well as the frequency of collection**. A few provide an option for users to clear previous activities on the app with one click.
+> - The regulations also require companies to **increase transparency about how their recommendation algorithms work**. Meituan, one of the companies called out by that People exposé on food deliveries, now provides **more information about how they calculate “estimated arrival time” for deliveries and builds in more time for delivery workers.**
+
