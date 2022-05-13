@@ -5,6 +5,8 @@ category: notes
 layout: post
 ---
 
+*三十年前的月亮早已沉下去，三十年前的人也死了，然而三十年前的故事还没完──完不了。—— 張愛玲《金鎖記》*
+
 # Reading Notes with Chinese Characteristics, in May, 1922
 
 Friendly Reminder: Table of Contents can be found on the side bar. 

@@ -4,7 +4,6 @@ layout: home
 ---
 > "All art is quite useless."--Oscar Wilde
 
-
 ## Introduction 
 Hello and welcome to my notebook. It's technically a blog but I chose the gitbook style in the hope that this would be a public notebook. 
 
