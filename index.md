@@ -16,7 +16,7 @@ Some pages might be very long, and I would recommend using the table of contents
 
 *I still don't know how to properly introduce myself, so in general please just take me as a normal human being.*
 
-I am a second-year computer science student (with limited coding experience... but I'm working on it) and I do love math as every Chinese does (not really, I'm the only one in my friend group). I'm a beginner in German and have native fluency in mandarin, so you would see three languages on this webiste and I would not apologize for that.
+I am a second-year computer science student (with limited coding experience... but I'm working on it) and I do love math as every Chinese does (not really, I'm the only one in my friend group). I'm a beginner in German and have native fluency in mandarin, so you would see three languages on this webiste and I would not apologize for that. Most content would be in English.
 
 I am an RA in [AidData](aiddata.org) and a volunteer who offers technical (and emotional) support in the [Bray School](https://brayschool.pages.wm.edu/). As a collaborative community research project with my long-lost American sister Kaleea Korunka, I'm working on [scraping eviction data](https://github.com/yxlol/Virginia-Eviction) from online court records using Selenium. My Github page is [here](https://github.com/yxlol). 
 
