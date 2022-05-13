@@ -42,3 +42,4 @@ tags: resources
    - [What's on Weibo](https://www.whatsonweibo.com/), for context weibo is Chinese version of twitter
    - [Six Tones](https://www.sixthtone.com/): while it is a state media, the coverage is very interesting.
    - [China File](https://www.chinafile.com/): ChinaFile is a project of the Center on U.S.-China Relations at Asia Society. This includes translation of selected articles from [Caixin Media 财新社](https://www.chinafile.com/reporting-opinion/caixin-media) which is a Chinese private news agency reporting on finance in China. 
+   - [Neican.org](https://www.neican.org/) "Newsletter on current events in China, with many translated materials. Some items in the newsletter are available for free." (quoted from Professor Hill)
