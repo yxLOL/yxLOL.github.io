@@ -39,7 +39,9 @@ I *do not* include any trackers or analytic tools on this website, though these 
 
 Thanks for bearing with me. If you are interested in contributing to the site/any random projects I'm working on, you can find my contact information [here](https://yxlol.github.io/yx/pages/contact/). Any comments and suggestions for resources are welcome, and while I'm really not the best person to answer anything, feel free to drop questions. 
 
-I hope you have a great day. 
+I think I would in general need to include a content warning for the site materials, because of the nature of the topic we are dealing with. Many people ask me when would all of these end, and while I have no clue as everybody else, I bluntly believe that there is some hope in the future, though I don't know if we would be able to see it, and if that's the kind of hope we want. 
+
+With that, I hope you have a great day. 
 
 
 

@@ -1,9 +1,11 @@
 ---
-title: 中国特色读书笔记合集
+title: 中国特色阅读笔记 - 1922年5月
 date: 2022-05-10
 category: notes
 layout: post
 ---
+
+# Reading Notes with Chinese Characteristics, in May, 1922
 
 Friendly Reminder: Table of Contents can be found on the side bar. 
 
@@ -59,10 +61,26 @@ Author:  Peter Hessler
 ## Why Xinjiang is an internal settler colony
 by Darren Byler, Sept.1, 2021
 
-The original link is [here](https://supchina.com/2021/09/01/why-xinjiang-is-an-internal-settler-colony/)
+*The original link is [here](https://supchina.com/2021/09/01/why-xinjiang-is-an-internal-settler-colony/)*
 
-** Quotes and Comments**
+**Quotes and Comments**
 
 > These new trees, planted in the 1990s and 2000s, were the “Open Up the Northwest” (西北大开发 xīběi dà kāifā) and “Open Up the West” trees (西部大开发 xībù dà kāifā). The people I interviewed also called them “investment” (Uy: kapital) trees. In many cases, the work brigades, which are still the most common form of rural government in Xinjiang, sold the rights to these young trees to villagers. At a certain point, decades from now, they will be permitted to cut down the trees and enjoy the profits of their lumber.
 
 > In Xinjiang, dispossession is not just about a lack of compensation, it is about a process of illegalizing traditions and turning sacred land into property.
+
+- Cotton:   
+   > At the same time, in June 1992 Chinese leaders announced a new policy position that would turn the Uyghur homeland into a center of trade, capitalist infrastructure, and agricultural development capable of further serving the needs of the national economy. One of the main emphases in the new proposal was the need to establish Xinjiang as one of China’s primary cotton-producing regions.
+
+   > By 2020, 85 percent of Chinese cotton was produced in the Uyghur region.
+
+   > Using threats of land seizures and detention — a type of legalized theft or expropriation — local authorities often forced farmers to convert their existing multi-crop farms to cotton in order to meet buyer-imposed quotas. In the same manner, in their capacity as brokers with state enterprise buyers, local officials forced farmers to sell their cotton only to these buyers. These corporations in turn sold the cotton at full market price to factories in Eastern China.
+
+- Colony
+   > For Tohti, the most important factors associated with Uyghur dispossession were “blatant ethnic discrimination in hiring, a rural labor surplus, overconcentration of economic resources in Han Chinese-dominated urban areas, ‘stability maintenance policies’ that restrict population mobility and exacerbate rural unemployment, and severe underinvestment in basic education.” Millward argues that “what Tohti described — without using the word — is a colonial system of settlement and extraction in Xinjiang.”
+
+   > This process has been fostered by state capital, which subsidized the development of natural resource and industrial agriculture sectors by injecting billions of yuan into the region. As the sociologist Ching Kwan Lee has shown, Chinese state capital often acts as a subsidy in securing long-term economic interests even if they are not immediately profitable. By investing in the Han settlement of Xinjiang, putting settlers to work in natural resource extraction and overseer positions on industrial farming plantations, and fostering a service sector that supported this development, the state was assured of a permanent reserve of domestic energy and raw materials essential to economic growth.
+
+   > In 2014, Uyghur protests against these obvious forms of west-east wealth transfer were officially outlawed as one of 75 signs of religious extremism or violent terrorism.
+
+   > These three elements — material dispossession, institutional domination, and settler occupation — are what established Xinjiang as a contemporary settler colony that was internal to the Chinese state.
