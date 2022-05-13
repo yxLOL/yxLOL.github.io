@@ -33,7 +33,7 @@ I might also include the personal programming projects, but that wouldn't be the
 ## Copyrights and Privacy
 Feel free to contact me if you are not certain. In general, as part of the CC BY-SA 4.0 liscense, you can share and use the materials as long as it's not for commercial use, and I would not be responsible for any consequences resulted from using them.
 
-I *do not* include any trackers or analytic tools on this website, though these can be easily integrated witht the theme I use. I've removed all codes and files that relate to this function. 
+I *do not* include any trackers or analytic tools on this website, though these can be easily integrated with the theme I use. I've removed all codes and files that relate to this function. 
 
 ## Final Thoughts
 

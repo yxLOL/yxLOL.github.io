@@ -65,9 +65,15 @@ by Darren Byler, Sept.1, 2021
 
 **Quotes and Comments**
 
-> These new trees, planted in the 1990s and 2000s, were the “Open Up the Northwest” (西北大开发 xīběi dà kāifā) and “Open Up the West” trees (西部大开发 xībù dà kāifā). The people I interviewed also called them “investment” (Uy: kapital) trees. In many cases, the work brigades, which are still the most common form of rural government in Xinjiang, sold the rights to these young trees to villagers. At a certain point, decades from now, they will be permitted to cut down the trees and enjoy the profits of their lumber.
+- Context
+   > These new trees, planted in the 1990s and 2000s, were the “Open Up the Northwest” (西北大开发 xīběi dà kāifā) and “Open Up the West” trees (西部大开发 xībù dà kāifā). The people I interviewed also called them “investment” (Uy: kapital) trees. In many cases, the work brigades, which are still the most common form of rural government in Xinjiang, sold the rights to these young trees to villagers. At a certain point, decades from now, they will be permitted to cut down the trees and enjoy the profits of their lumber.
 
-> In Xinjiang, dispossession is not just about a lack of compensation, it is about a process of illegalizing traditions and turning sacred land into property.
+   > In the early 2000s, the Hú Jǐntāo 胡锦涛 administration took the regional project “Open Up the Northwest” to a new level, rebranding it as “Open Up the West.”
+
+   > The “Open Up the Northwest” project had resulted in rapid and sustained economic growth of over 10 percent per year since 1992, so state authorities were eager to take the development projects further, opening new markets and new sites for industrial production. By the early 2000s, the Uyghur homeland had become the country’s fourth largest oil-producing area, with a capacity of 20 million tons per year.
+
+   - I (for whatever reason that is) never had a second thought about the "Open up the West" policies. Very important context to add I'd say. 
+
 
 - Cotton:   
    > At the same time, in June 1992 Chinese leaders announced a new policy position that would turn the Uyghur homeland into a center of trade, capitalist infrastructure, and agricultural development capable of further serving the needs of the national economy. One of the main emphases in the new proposal was the need to establish Xinjiang as one of China’s primary cotton-producing regions.
@@ -79,8 +85,14 @@ by Darren Byler, Sept.1, 2021
 - Colony
    > For Tohti, the most important factors associated with Uyghur dispossession were “blatant ethnic discrimination in hiring, a rural labor surplus, overconcentration of economic resources in Han Chinese-dominated urban areas, ‘stability maintenance policies’ that restrict population mobility and exacerbate rural unemployment, and severe underinvestment in basic education.” Millward argues that “what Tohti described — without using the word — is a colonial system of settlement and extraction in Xinjiang.”
 
+   - I do want to add here why we wouldn't find analyzing Chinese investment in Africa from the colonialism pov productive--the details do matter. 
+
    > This process has been fostered by state capital, which subsidized the development of natural resource and industrial agriculture sectors by injecting billions of yuan into the region. As the sociologist Ching Kwan Lee has shown, Chinese state capital often acts as a subsidy in securing long-term economic interests even if they are not immediately profitable. By investing in the Han settlement of Xinjiang, putting settlers to work in natural resource extraction and overseer positions on industrial farming plantations, and fostering a service sector that supported this development, the state was assured of a permanent reserve of domestic energy and raw materials essential to economic growth.
 
+   - So basically extracting the region's resources without benefiting the residents at all... 
+
    > In 2014, Uyghur protests against these obvious forms of west-east wealth transfer were officially outlawed as one of 75 signs of religious extremism or violent terrorism.
+
+   > In Xinjiang, dispossession is not just about a lack of compensation, it is about a process of illegalizing traditions and turning sacred land into property.
 
    > These three elements — material dispossession, institutional domination, and settler occupation — are what established Xinjiang as a contemporary settler colony that was internal to the Chinese state.

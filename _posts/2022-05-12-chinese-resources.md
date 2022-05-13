@@ -34,11 +34,11 @@ tags: resources
    - BBC/NYTimes/Washington Post Chinese Version
    - [端传媒](https://theinitium.com/) (they do offer student discount and you can switch to simplified Chinese version)
    - [方可成新闻实验室](https://newslab.info/) 
-   - [爱思想](https://www.aisixiang.com/) Selected works from scholars in the thinktank. 
+   - [爱思想](https://www.aisixiang.com/): Selected works from scholars in the thinktank. 
  - English Sources
-   - [Supchina.com](https://supchina.com/), especially their monthly coverage on [Xinjiang](https://supchina.com/tag/xinjiang-column/)
-   - [Reading the China Dream](https://www.readingthechinadream.com/), A translation project of Chinese scholars works to English (you can also find the links to the original texts on the website)
-   - [China AI Newsletter](https://chinai.substack.com/), if you are interested in the topic... it's also a translation project and you can also find the original texts.
+   - [Supchina.com](https://supchina.com/): especially their monthly coverage on [Xinjiang](https://supchina.com/tag/xinjiang-column/)
+   - [Reading the China Dream](https://www.readingthechinadream.com/): A translation project of Chinese scholars works to English (you can also find the links to the original texts on the website)
+   - [China AI Newsletter](https://chinai.substack.com/): if you are interested in the topic... it's also a translation project and you can also find the original texts.
    - [What's on Weibo](https://www.whatsonweibo.com/), for context weibo is Chinese version of twitter
-   - [Six Tones](https://www.sixthtone.com/), while it is a state media, the coverage is very interesting.
-   - [China File](https://www.chinafile.com/)ChinaFile is a project of the Center on U.S.-China Relations at Asia Society. This includes translation of [Caixin Media 财新社](https://www.chinafile.com/reporting-opinion/caixin-media) which is a Chinese private news agency reporting on finance in China. 
+   - [Six Tones](https://www.sixthtone.com/): while it is a state media, the coverage is very interesting.
+   - [China File](https://www.chinafile.com/): ChinaFile is a project of the Center on U.S.-China Relations at Asia Society. This includes translation of selected articles from [Caixin Media 财新社](https://www.chinafile.com/reporting-opinion/caixin-media) which is a Chinese private news agency reporting on finance in China. 
