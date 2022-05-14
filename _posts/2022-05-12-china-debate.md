@@ -1,5 +1,5 @@
 ---
-title: The China Debate Final Revision Notes
+title: The China Debate Final Revision (2nd half) Notes
 date: 2022-05-12
 category: notes
 layout: post
@@ -77,13 +77,29 @@ Non-fiction stories
 
 > The State Council names the sex-ratio imbalance as one of the population pressures because it “causes a threat to social stability.” It also cites the “low quality of the general population, which makes it hard to meet the requirements of fierce competition for national strength.” 
 
+a random picture I found
+
+![birth control policies](https://media.cmx.edu.kg/cache/media_attachments/files/108/290/253/074/784/787/original/a70dbac4138a1a3d.jpeg)
 
 ## Xinjiang
 
+**Context**
+- **Narrative** Change: "multi-cultural nation" --> war on terror
+- **GWOT**: Roberts: “GWOT is not a war at all but a narrative that can serve as a **political tool** in the hands of states to advance a variety of agendas” the rhetoric of counterterrorism has been put into service as “justification for attacking domestic opponents, especially if they are Muslims” (64).
+- Xinjiang Production and Construction Corps （新疆建设兵团） 
+   - Sits largely outside of (or has equal power to) jurisdiction of Xinjiang Provincial Government 
+   - Estimated 85-90% Han Chinese
+   - 2.6 million employees
+- By 2018: extensive reports of Uyghurs being sent to reeducation or internment facilities.
 *Digital Enclosure*
 
 ### Terror Capitalism by Darren Tyler
 
+- Chapter 5
+   - "The Blind Wanderer" in Chinese Discourse
+   -  > The "unseeing," "directionless" flow of bodies was viewed as a threat to the centrally planned communist revolution.... conveying a feeling of failure and irresponsibility 
+   -  > As Guang Lei has shown, the term came to refer to a form of "circular affirmation" between urban-based government policies that sought to control the inflow of cheap labor and the xenophobic urban popular culture that sought to deny strangers a right to live in the city. 
+   -  Since the mid-1990s, officials in Xinjiang and across the nation have begun to use the term farmer-worker to describe migrants rather than mangliu. 
 ### 伊力哈木:当前新疆民族问题的现状及建议
 
 ## American Factory
