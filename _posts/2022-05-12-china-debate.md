@@ -55,6 +55,8 @@ Non-fiction stories
 
 ## Non-confrontational Activism
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/0MNNKSUU9OOQ8DSGWduw79?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
+
 ### The Other Digital China by Wang Jing
 
 *Non-confrontational Activism*
