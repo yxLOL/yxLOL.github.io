@@ -12,7 +12,7 @@ layout: post
 
 *"The moon 30 years ago has set, and people 30 years ago has died, but the story 30 years ago hasn't been over--it can't be over" Eileen Chang, "The Golden Lock"*
 
-I apologize for the very horrible style in this notes. I promise I would try to figure out a better style in the future (but right now I'm too lazy to change it.)
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4SQxzEwMRZcLl4XSDoWCL5?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
 ---
 
