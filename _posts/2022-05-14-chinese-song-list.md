@@ -7,6 +7,9 @@ layout: post
 
 Songs I enjoy a lot. Some in Cantonese some in Chinese. Introduction to be followed.
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2oSyibxNEOnHUYh1J0xNYX?utm_source=generator" width="80%" height="380" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
+
+Incase you are interested in how I feel every once in a while reading all the news.
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/4SQxzEwMRZcLl4XSDoWCL5?utm_source=generator" width="80%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
