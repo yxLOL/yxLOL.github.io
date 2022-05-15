@@ -107,7 +107,7 @@ a random picture I found
 ### Terror Capitalism by Darren Tyler
 
 - Preface and Introduction 
-   - *Framing the political and economic stake of Uyghut colonization as a **frontier of global capitalism** rather than as a manifestation of tyrannical state communism or Asian despotism, as it is often framed by xenophobic North American politicians, also works to refuse a revival of Cold War binarisms.*
+   - *Framing the political and economic stake of Uyghur colonization as a **frontier of global capitalism** rather than as a manifestation of tyrannical state communism or Asian despotism, as it is often framed by xenophobic North American politicians, also works to refuse a revival of Cold War binarisms.*
       - how does Xinjiang relates to the world (very likely we in the U.S are using something produced by the factories with free labor of Uyghurs)
    - *It meant attempting to refuse to turn their stories into a kind of pornography or objectification of settler-colonial oppression while at the same time acknowledging its totalizing presence.*
       - decolonize the story
