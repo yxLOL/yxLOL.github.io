@@ -155,6 +155,12 @@ a random picture I found
 ## China in Africa 
 ### Spector of Global China
 
+## BLM
+
+The roundatable was really hard to follow and I need to take breaks in reading because it was... very bad. I organize the quotes according to the speech they make [here](https://docs.google.com/spreadsheets/d/1t9SMbOnWPJwVVOOIZkSjvA5v59Cfmfm2jjpCCQQ8UvE/edit?usp=sharing)
+
+P.S Sheet 1 is the quote to the 1st half of the semester.
+
 
 
 
