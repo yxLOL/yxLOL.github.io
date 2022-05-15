@@ -5,9 +5,16 @@ category: notes
 layout: post
 ---
 
-*三十年前的月亮早已沉下去，三十年前的人也死了，然而三十年前的故事还没完──完不了。—— 張愛玲《金鎖記》*
 
 # Reading Notes with Chinese Characteristics, in May, 1922
+
+*三十年前的月亮早已沉下去，三十年前的人也死了，然而三十年前的故事还没完──完不了。—— 張愛玲《金鎖記》*
+
+*"The moon 30 years ago has set, and people 30 years ago has died, but the story 30 years ago hasn't been over--it can't be over" Eileen Chang, "The Golden Lock"*
+
+I apologize for the very horrible style in this notes. I promise I would try to figure out a better style in the future (but right now I'm too lazy to change it.)
+
+---
 
 Friendly Reminder: Table of Contents can be found on the side bar. 
 
@@ -52,6 +59,8 @@ Author:  Peter Hessler
 - How did he confirm this though. Also there's not a lot of details about it. I guess it is always hard...
 
 > When teaching Orwell, I often thought about why such books aren’t considered a threat to the Party. In the novels of the Dystopian Trilogy, futuristic societies distract and control individuals by various methods: the continuous war and rewritten history of “1984,” the sex and soma drugs of “Brave New World,” the surgical removal of human imagination in “We.” **But none of these books anticipates how useful competition can be in sustaining a long-term authoritarian state.** In China, nationalistic propaganda might be effective for children and other people at a lower level, but there’s a tacit understanding that it won’t work as well for the highly educated. As long as these individuals have opportunities to advance and improve their lives, they are less likely to oppose authority. And the system doesn’t need to be hermetically sealed in the manner of “1984.” The vast majority of Chinese students who go abroad choose to return—for them, it’s as simple as yinyefeishi. If they were truly afraid of choking, they would remain in the United States.
+
+- The unexpected effect of involution. 
 
 > And there’s a point at which competition becomes a highly effective distraction. For most of my students, the greatest worry didn’t seem to be classroom security cameras or other instruments of state control—it was the thought of all those talented young people around them.
 
@@ -102,6 +111,35 @@ by Darren Byler, Sept.1, 2021
 *Related Materials Mentioned in the Article*
 - [新疆少数民族流动人口法律意识的现状分析](https://xinjiangdocumentation.sites.olt.ubc.ca/files/2020/11/%E6%96%B0%E7%96%86%E5%B0%91%E6%95%B0%E6%B0%91%E6%97%8F%E6%B5%81%E5%8A%A8%E4%BA%BA%E5%8F%A3%E6%B3%95%E5%BE%8B%E6%84%8F%E8%AF%86%E7%9A%84%E7%8E%B0%E7%8A%B6%E5%88%86%E6%9E%90_%E6%AD%A6%E4%B8%BD%E4%B8%BD1.pdf)
 
+## 郑杭生：民族团结与和谐社会建设——一种社会学的解读
+
+*The link to the article is [here](http://www.aisixiang.com/data/31745.html). It was written in 2010, so after the 7.5 event in 2009. I think it is a good reference to the central gov's attitude towards "民族大团结" as a narrative at that time, even though it does have a long history. Basically, the "multicultrualism" with Chinese characteristics means that we all fight and build the "socialism" together.*
+
+*就中国的情况说，“民族团结”，就是把我国56个不同民族联合起来，使之成为彼此具有相互依存的良性互动关系、并形成**更大民族共同体--中华民族**的过程和状态。*
+
+*广泛的民族认同*
+- *第一个层次，即高一级层次的民族认同，就是**对中华民族的认同**。*
+- *第二个层次，即基层的民族认同，就是对56个民族**各自社会身份和社会角色的认同***
+- *多元一体格局中，56个民族是基层，**中华民族是高层***
+- *在当代中国，民族认同并不是单纯民族认同的问题，而是**与祖国认同、中华文化认同、中国特色社会主义道路认同，紧密联系在一起**的。*
+
+*我们要建立的社会主义民族关系，是“平等、团结、互助、和谐”的**新型民族关系***
+- *和谐社会的建设，包含有双重的任务、解决两个方面的问题，第一，就是如何在一个市场经济的陌生人世界里构筑人际关系和谐、互助合作的新的社会共同体，这个社会共同体，在宏观上叫做和谐社会，在微观上叫做和谐社区*
+- *第二，就是如何在价值观开放多元的环境中构建认同度高、归属感强的意义共同性，这种意义共同性，在宏观上叫做社会归属感，在微观上叫做社区归属感，对各个民族来说就是民族归属感*
+
+
+*在实际的社会生活中，民族团结还表现为：努力消除一切不利于民族团结的因素，既反对大民族主义，主要是大汉族主义，也反对地方民族主义，坚定不移地维护民族团结。*
+
+*第二，民族团结本身就是社会和谐不可或缺的重要内容*
+
+*国际敌对势力对我国实行西化和分化的政治图谋一刻也没有放松，与国内民族分裂势力相互勾结，处心积虑地利用所谓“民族”、“宗教”、“人权”等问题，加紧对我进行渗透、分裂、破坏和颠覆活动。民族问题的特点是，它涉及国家的核心利益，一出现就不是小问题。*
+
+- For me I think most words use a different definition here compared to their western origins. 
+
+*第三，民族团结对社会和谐的重要性越来越突出*
+
+*对此，我们必须站在国家统一、民族团结这一最高利益、核心利益的高度，采取特殊政策措施，下大力气解决：在发展战略和总体布局中，把加快少数民族和民族聚居地区发展，摆到更加突出、更加重要、更加紧迫的位置上来。既要投入更多的资金，又要给予更优惠的政策;既要帮助他们把经济搞上去，又要帮助他们发展各项社会事业;既要继续发挥中央政府的作用，又要坚持抓好各地的对口支持工作。切实加大感情投入、政策投入、人才投入、资金投入和科技投入。充分调动民族聚居地区内外两个积极性，使民族聚居地区的发展实现新的跨越。*
+
 ## New Regulations on Algorithms
 
 **One month after the implementation of new regulations on algorithms, how many personalized recommendation services still intrude on personal information?**
@@ -112,4 +150,7 @@ Link to translation is [here](https://docs.google.com/document/d/1CCqTuyNwKzCDCP
 > - WeChat, Meituan, Bilibili, Douyin, Taobao, Weibo, and Toutiao have added buttons for users to **turn off personalized recommendation functions**.
 > - Some apps now let users **view the specific personal info collected by the app as well as the frequency of collection**. A few provide an option for users to clear previous activities on the app with one click.
 > - The regulations also require companies to **increase transparency about how their recommendation algorithms work**. Meituan, one of the companies called out by that People exposé on food deliveries, now provides **more information about how they calculate “estimated arrival time” for deliveries and builds in more time for delivery workers.**
+
+
+
 
