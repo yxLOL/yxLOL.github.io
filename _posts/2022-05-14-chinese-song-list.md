@@ -20,4 +20,8 @@ Related to 1989 Tian'anmen square mascare, which also effectively makes them ban
 
 This one is about HK... I do like the structure of the song lol
 
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6qlEgkjMbVNAIUbHKl8QLh?utm_source=generator" width="100%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
+
+
+
 Alright I know I have a weird taste of music. 
