@@ -10,7 +10,7 @@ Hello and welcome to my notebook. It's technically a blog but I chose the gitboo
 
 You can find the github repo to the Jekyll theme [here](https://github.com/sighingnow/jekyll-gitbook).
 
-Some pages might be very long, and I would recommend using the table of contents on the side bar. Unfortunately I don't have tags for this site, but the Search bar on the top left corner would be quite helpful and I would encourage you to use it. 
+Some pages might be very long, and I would recommend using the table of contents on the side bar.
 
 ## About the Creator
 
@@ -33,7 +33,7 @@ I might also include the personal programming projects, but that wouldn't be the
 ## Copyrights and Privacy
 Feel free to contact me if you are not certain. In general, as part of the CC BY-SA 4.0 liscense, you can share and use the materials as long as it's not for commercial use, and I would not be responsible for any consequences resulted from using them.
 
-I *do not* include any trackers or analytic tools on this website, though these can be easily integrated with the theme I use. I've removed all codes and files that relate to this function. 
+I *do not* include any trackers or analytic tools on this website, though these can be easily integrated with the theme I use. I've removed all codes and files that I've found relevant to this function. 
 
 ## Final Thoughts
 
