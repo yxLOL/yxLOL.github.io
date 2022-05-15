@@ -79,7 +79,8 @@ Non-fiction stories
 
 ## Population Planning 计划生育
 
-<iframe src="//player.bilibili.com/player.html?aid=205914928&bvid=BV1Vh411e7pJ&cid=347336091&page=1" scrolling="no" border="0" frameborder="no" framespacing="0" allowfullscreen="true" width="100%" height = "100%"> </iframe>
+
+<iframe src="//player.bilibili.com/player.html?aid=205914928&bvid=BV1Vh411e7pJ&cid=347336091&page=1&high_quality=1&danmaku=0" allowfullscreen="allowfullscreen" width="100%" height="500" scrolling="no" frameborder="0" sandbox="allow-top-navigation allow-same-origin allow-forms allow-scripts"></iframe>
 
 *[Music video](https://www.bilibili.com/video/BV1Vh411e7pJ/) of I bear the second child for the country*
 
