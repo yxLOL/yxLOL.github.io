@@ -161,6 +161,6 @@ The roundatable was really hard to follow and I need to take breaks in reading b
 
 P.S Sheet 1 is the quote to the 1st half of the semester.
 
-
+## “Beaconism and the Trumpian Metamorphosis of Chinese Liberal Intellectuals” by Yao Lin
 
 
