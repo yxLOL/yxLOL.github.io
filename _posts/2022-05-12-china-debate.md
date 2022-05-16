@@ -148,7 +148,8 @@ a random picture I found
    -  *state-owned and mainstream digital media often tried to frame Chen Ye's images as migrants smiling through their pain, struggling to make  China a better place. Yet those same media producers ad Culture Ministry officials refused to confront the systems of enclosure and devaluation that had produced the vulnerable conditions of Uyghur life in the first place.*
       -  There is a very satarical term to describe the firstsentence: 丧事喜办. I think this is very common in propaganda/state media: using people's struggle to see how hard it is to build the nation... and thus we should cherish ccp?? anyways. 
       -  Definitely a part of the "grand narrative", 忆苦思甜, Maoist communism legacy
-### 伊力哈木:当前新疆民族问题的现状及建议
+## 伊力哈木:当前新疆民族问题的现状及建议
+Thohti: Present-day Ethnic Problem in Xinjiang 
 
 Published in 2011, written for the higher official, editted in December 2013. This is not the final draft.
 
@@ -169,6 +170,11 @@ Published in 2011, written for the higher official, editted in December 2013. Th
 原因:
 - 虽然今天政府对宗教的热情较以往已有了很高宽容度，但长期坚持无神论，对宗教问题缺乏系统研究，在遇到涉及宗教的问题时，政府易处于极为被动的应对局面。
 - 具体到新疆，则忽视了宗教在少数民族社会的特殊地位，在处理宗教问题时，人们几乎很 难分得清政府的社会世俗化主张与压制少数民族文化两者的界限在哪里。尤其是在伊斯兰 教问题上，政府往往在专政机器的自信和对宗教问题缺少基本了解的恐惧之间剧烈摇摆。 而97年以来，反“三股势力”成为地方压倒一切的任务，但具体操作过程中，反宗教极端主 义却变成了反传统宗教，压制正常的宗教信仰。
+
+
+民族隔膜与隔离问题:
+- 2010年，新疆各民族杂居最大的城市乌鲁 木齐，出现了明显的汉族和维吾尔族各自向本民族占优势的城区搬迁集中的现象。
+- 新疆自解放后始在政府动员下大规模从内地移民，在当时的制度环境下，迁入新疆的汉族 人，几乎全部拥有体制内身份，而且大都安排在兵团内，它有其特定的历史因素
 
 ## American Factory
 
