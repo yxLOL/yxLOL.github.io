@@ -112,7 +112,7 @@ a random picture I found
 
 ![xinjiang](https://www.rfa.org/mandarin/zhuanlan/jieduxinjiang/xj-09242021155203.html/09eaa74f-4d17-4365-9d30-03533bded385.jpeg/@@images/fe5bd81e-fe90-4640-a323-f2a048c3c711.jpeg)
 
-### Terror Capitalism by Darren Tyler
+### Terror Capitalism by Darren Byler
 
 - Preface and Introduction 
    - *Framing the political and economic stake of Uyghur colonization as a **frontier of global capitalism** rather than as a manifestation of tyrannical state communism or Asian despotism, as it is often framed by xenophobic North American politicians, also works to refuse a revival of Cold War binarisms.*
@@ -163,4 +163,20 @@ P.S Sheet 1 is the quote to the 1st half of the semester.
 
 ## “Beaconism and the Trumpian Metamorphosis of Chinese Liberal Intellectuals” by Yao Lin
 
+
+## List of All the Materials 
+
+- Yi-Ling Liu, “China’s ‘Involuted’ Generation,” The New Yorker, May 2021. PDF below.
+- Manya Kotse, "The Concept of 'Involution' on Chinese Social Media." Link below.
+- “Death By Degrees”, n + 1, no. 14 (2012). PDF below.
+- Lai Youxuan, “Delivery Drivers, Stuck in the System” (外卖骑手，困在系统里), tr. Freya Ge and David Ownby, Reading the China Dream, link below.
+- Selections from Jing Wang, The Other Digital China: Nonconfrontational Activism on the Social Web (Harvard University Press, 2019).
+- Chapters 1 and 5 from Darren Byler, Terror Capitalism; a selection from Ilham Tohti
+- Watch American Factory 美国工厂 (2019). This film is available on Netflix. Directed by Julia Reichert, Steven Bognar. 
+- Read "This Chinese Company Moved Production to South Carolina to Save Money," Wall Street Journal, February 17, 2016.
+- Read "The Politics of Chinese Foreign Direct Investment in the USA," Journal of Asian and African Studies 55, no. 2 (2020): 254-272.
+- Read selection from Ching Kwan Lee, Specter of Global China (required).
+- Xu Jilin, Liu Qing, Bai Tongdong, and Wu Guanjun Reflect on BLM
+- “I Beg to Differ with Xu Jilin & Co.: The Intellectual Trap of the (Anti-) Political Correctness Framing”
+- Beaconism and the Trumpian Metamorphosis of Chinese Liberal Intellectuals- Alternative Formats
 
