@@ -150,6 +150,36 @@ Link to translation is [here](https://docs.google.com/document/d/1CCqTuyNwKzCDCP
 > - Some apps now let users **view the specific personal info collected by the app as well as the frequency of collection**. A few provide an option for users to clear previous activities on the app with one click.
 > - The regulations also require companies to **increase transparency about how their recommendation algorithms work**. Meituan, one of the companies called out by that People exposé on food deliveries, now provides **more information about how they calculate “estimated arrival time” for deliveries and builds in more time for delivery workers.**
 
+## 黨旗下的天秤：中國「法治」的政治邏輯｜端傳媒 Initium Media
+
+The origin source is here[https://theinitium.com/article/20210906-opinion-china-law-construction/invite_token/fDHBwKMaye/] (my friend generously shared it with me), in traditional Chinese
+
+*《網絡安全法》《個人信息保護法》等立法的主要目的明顯仍然是加強國家權力、加強對公民的監控，但確實也有試圖平息公眾對網絡安全的擔憂及對大型互聯網企業拿著用戶數據為所欲為的不滿的目的——比如《個人信息保護法》就專門針對「大數據殺熟」等性質惡劣的商業手段進行了限制。*
+
+
+*耶魯大學張泰蘇教授和哥倫比亞大學金斯堡（T. Ginsburg）教授在最近的一篇論文中指出，「習近平領導下的中國共產黨確實進行了前所未有的集權，但它以高度法律化的方式做到了這一點，賦予法院對抗其他國家機關和黨組織的權力、堅持法律專業精神」*
+
+*甚至遭到西方國家和香港民主派人士一致批評的《香港特別行政區維護國家安全法》（香港國安法），其實也正說明中共對法律工具的濃厚興趣。*
+
+*國際上，西方國家雖然已經不再對中國民主化抱有幻想，但仍然期望至少中國的司法改革特別是對政府和司法機關法律素養的提高能帶來的營商環境的改善——比如中國知識產權法的進步特別是京滬穗三地知識產權法院的運作，就得到了國際法律服務界的讚許。*
+
+*這種態度與中共十年前對法治的態度可謂截然相反。*; *「把法律當作擋箭牌」*
+
+*「法治」原本是西方社會的舶來品，以司法獨立為基礎、節制政治權力、保護個人的權利與自由，其本質是自由主義的，所以中共在加以採用時，自然需要嚴加提防。*
+
+*創建中國特色「法治」話語的終極難題，在於如何處理「黨的領導」與「法治」之間的關係。*
+
+*所以早在習近平主政之前，中共就反覆強調過反對司法獨立的西方法治思想。2009年3月，時任全國人大常委會委員長的吳邦國發表了堅決抵制「三權分立」的談話，當時的最高人民法院副院長沈德詠也表明，「在中國，人民法院必須堅持在黨的領導下，在人大監督下，堅持中國特色社會主義司法制度，依法獨立公正行使審判權，絕不能簡單套用、照搬西方那一套，絕不能搞三權分立式的司法獨立。」*
+
+*自由派這種「承認黨的抽象領導地位，但在日常政治中要求『法大於黨』」的觀點，與中共的法治論述是無法兼容的，因為中共所強調的是堅持黨對「一切工作」的領導。「黨大還是法大」的問題，在更深入的理論層面上繼續懸而未決。*
+
+*陳端洪認為，中共中央是「作為主權者的中國人民」的終極代表，而憲法僅僅是「以『全國各族人民』的口吻宣告了、衛護了共產黨的領導這個原則而已」，「像任何代表制一樣，在中國，主權者人民也不能親自出場，而需經由代表行使主權」，所以，「中國共產黨是中國人民的代表，這是一個基本的政治事實，也是根本的憲法原則」，中共中央是「人民制憲權的常在的代表機構」，也是「主權意義的制憲權代表」。*
+
+*所以，無論是對內還是對外，中共的「法治」建設，為了達到其效果，都不可能脫離通行的法治定義而另起爐灶。中共當然一方面希望用通行的法治理念的金字招牌來收攬人心、吸引資本、管控下級黨員官僚，同時另一方面拒絕接納通行的法治理念的核心價值、亦拒絕把黨完全置於憲法和法律之下。但如果「中國特色」的「法治」完全變成中共的自說自話、與通行的法治明顯毫無關係，自然也就無法沾到「法治」的光、達不到「法治」建設的功能性目的了。*
+
+
+
+
 
 
 
