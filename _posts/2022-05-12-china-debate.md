@@ -179,7 +179,7 @@ Published in 2011, written for the higher official, editted in December 2013. Th
 ## American Factory
 
 ## China in Africa 
-### Spector of Global China
+### Specter of Global China
 
 ## BLM
 
@@ -188,6 +188,10 @@ The roundatable was really hard to follow and I need to take breaks in reading b
 P.S Sheet 1 is the quote to the 1st half of the semester.
 
 ## “Beaconism and the Trumpian Metamorphosis of Chinese Liberal Intellectuals” by Yao Lin
+
+- Political beaconism: traumatizing lived experience of Maoist totalitarianism
+- Civilizational beaconism: heritages of scientific racism and social receptive to anti-immigrant and Islamophobic paranoia
+   - >  is an unquestioning admiration and glorification of the presumably ‘advanced’ Western ‘civilization’ that necessitates all of its political achievements and perfections
 
 
 ## List of All the Materials 
