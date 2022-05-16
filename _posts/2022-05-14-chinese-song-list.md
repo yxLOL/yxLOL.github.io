@@ -65,3 +65,5 @@ Beyond is a very famous band (from HK) in China. This song was written as a trib
 ---
 
 Alright I know I have a weird taste of music, and I do realize I don't have many songs in mandarin to recommend... Sorry, but not really, because trust me I tried.
+
+P.S I swear I recommend them not because they are banned (some of them aren't...) I have no idea how this happened. I swear. I swear.
