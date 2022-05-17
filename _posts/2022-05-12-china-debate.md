@@ -181,6 +181,9 @@ Published in 2011, written for the higher official, editted in December 2013. Th
 ## China in Africa 
 ### Specter of Global China
 
+- South-south cooperation
+- What's so different about Chinese capital? 
+
 ## BLM
 
 The roundatable was really hard to follow and I need to take breaks in reading because it was... very bad. I organize the quotes according to the speech they make [here](https://docs.google.com/spreadsheets/d/1t9SMbOnWPJwVVOOIZkSjvA5v59Cfmfm2jjpCCQQ8UvE/edit?usp=sharing)
