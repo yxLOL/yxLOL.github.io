@@ -27,7 +27,9 @@ layout: post
 
 想起那句古老的微博宣傳詞，圍觀改變中國。
 
-我也沒什麼以一己之力改變中國的願景，但是我還有許多人都可以做到圍觀吧。
+我也沒什麼以一己之力改變中國的願景，但是我還有許多人都可以做到圍觀吧。做African studies的課的presentation準備的時候，我和西非的朋友交換了一下自己國度的見聞，發現人類真的是命運共同體...非洲真的是我們的兄弟...（不是）
+
+but there's always hope. there's always hope. there's always hope. 
 
 ---
 
