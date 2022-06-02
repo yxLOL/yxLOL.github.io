@@ -1,5 +1,5 @@
 ---
-title: 2022 Spring 隨筆
+title: 2022 隨筆
 date: 2022-05-16
 category: journal
 layout: post
@@ -116,8 +116,14 @@ I may be skin and bone,
 
 然后现在开始学德语，一门和英语很近的语言...... 事情变得更复杂了......
 
-## （五）How I feel like recently
+## （五）How I feel recently
 
-2022.05.03
+2022.05.23
 
 最近我觉得我像柏林墙倒塌前，住在西德看东德的人。
+
+## （六）Tragic Life
+
+2022.06.01 
+
+最近逐渐形成新的coping mechanism：对不可理喻的人类极其富有同情心。Instead of 这人真的既坏又蠢，事实摆眼前都不信，种族歧视而不自知，换个角度想，都能读《经济学人》了还是会犯以偏概全的错误，life like that must be tragic. 我佛慈悲。
