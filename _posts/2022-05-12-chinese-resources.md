@@ -29,7 +29,8 @@ tags: resources
    - Since *all* social media available in mainland China now would require a Chinese phone number to register, you might be interested in the alternative platforms...
  - [知乎](zhihu.com), while you cannot register without a phone number, if you google random things in Chinese and add site:.zhihu.com, sometimes it can generate interesting results.
  - [豆瓣](douban.com), Chinese version of goodreads + imdb + reddit + etc. If you are curious about Chinese films/literature (or Chinese' reactions to any films) you can use site:.douban.com
-
+- Youtube Channels
+   - [美食作家王刚](https://youtu.be/EhyQom5jiTE) This one (with English Sub) shows how to shred potatoes. His channel has always been my guilty pleasure... Very useless, but that's because I'm not good enough to learn how to cook from him. 
  - News Sources (to be updated)
    - BBC/NYTimes/Washington Post Chinese Version
    - [端传媒](https://theinitium.com/) (they do offer student discount and you can switch to simplified Chinese version)
