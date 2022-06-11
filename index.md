@@ -30,11 +30,6 @@ My primary goal is to use this site to organize the notes and resources that I f
 
 I might also include the personal programming projects, but that wouldn't be the primary usage of the site.
 
-## Copyrights and Privacy
-Feel free to contact me if you are not certain. In general, as part of the CC BY-SA 4.0 liscense, you can share and use the materials as long as it's not for commercial use, and I would not be responsible for any consequences resulted from using them.
-
-I *do not* include any trackers or analytic tools on this website, though these can be easily integrated with the theme I use. I've removed all codes and files that I've found relevant to this function. However, I'm not sure about the third-party embeded sources (pictures, music, videos) etc. 
-
 ## Final Thoughts
 
 Thanks for bearing with me. If you are interested in contributing to the site/any random projects I'm working on, you can find my contact information [here](https://yxlol.github.io/yx/pages/contact/). Any comments and suggestions for resources are welcome, and while I'm really not the best person to answer anything, feel free to drop questions. 
@@ -42,6 +37,17 @@ Thanks for bearing with me. If you are interested in contributing to the site/an
 I think I would in general need to include a content warning for the site materials, because of the nature of the topic we are dealing with. Many people ask me when would all of these end, and while I have no clue as everybody else, I bluntly believe that there is some hope in the future, though I don't know if we would be able to see it, and if that's the kind of hope we want. 
 
 With that, I hope you have a great day. 
+
+---
+
+## Copyrights and Privacy
+Feel free to contact me if you are not certain. In general, as part of the CC BY-SA 4.0 liscense, you can share and use the materials as long as it's not for commercial use, and I would not be responsible for any consequences resulted from using them.
+
+I *do not* include any trackers or analytic tools on this website, though these can be easily integrated with the theme I use. I've removed all codes and files that I've found relevant to this function. However, I'm not sure about the third-party embeded sources (pictures, music, videos) etc. 
+
+## 友情链接 
+
+- [JUNE](shiorireads.ca/): 很会写作的博客主播/图书馆员的博客
 
 
 
