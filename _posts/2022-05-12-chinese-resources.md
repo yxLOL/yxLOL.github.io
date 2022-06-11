@@ -13,9 +13,10 @@ tags: resources
    - My penpal from Brazil shared it with me. 
    - I think it is a good resource for starters to get used to the pronounciation of the language, especially because it includes all the tones. 
 
+
 ## Recommended Texts
 
-
+- This website consists of a lot of Chinese textbooks free to [download](http://www.hwjyw.com/textbooks/). They follow a similar format as the ones I used in primary school. The original intention is for the weekend schools for Chinese descendents to learn the language, and thus there is very limited English text on the book. Not sure if that's the best part about them, but I think it might be helpful, especially for beginners. (found it with an [AidData project](https://china.aiddata.org/projects/65888/))
 
 --To be updated--
 
