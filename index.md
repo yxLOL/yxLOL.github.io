@@ -47,7 +47,7 @@ I *do not* include any trackers or analytic tools on this website, though these 
 
 ## 友情链接 
 
-- [JUNE](shiorireads.ca/): 很会写作的博客主播/图书馆员的博客
+- [JUNE](shiorireads.ca/)
 
 
 
