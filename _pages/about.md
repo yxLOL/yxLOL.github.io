@@ -33,4 +33,6 @@ Thank you for your concern. No worries, USCIS and DHS made sure I wouldn't be ab
 ## Your English is very good. How long have you learned?
 Thank you very much, I did suffer a loooot when I was in highschool thanks to IB English A Lang&Lit HL and SAT. For your interest, I started in kindergarten. 
 
+---
+
 Do ask questions if you have any. You really can't ask worse questions than what I've added above. If you do, I would update the list accordingly. 
