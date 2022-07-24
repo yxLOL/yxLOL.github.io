@@ -14,12 +14,12 @@ Here's a list of frequently asked question I received over my one-year's stay in
 Ye. English word "yes" without the s. Try your best not to pronounce it as "yay", even though it does sound more delightful. 
 
 ## Where are you from?
-China. If you insist on asking for the details, I was born in WUhan and grew up in Shanghai. 
+China. If you insist on asking for the details, I was born in Wuhan and grew up in Shanghai. 
 
 No, Shanghai is not close to Beijing. It takes 5 hours by high-speed train if you know what that is.
 
 ## What's your major?
-Computer science. I like math better though. I chose it only because of the messed up immigration system here, which you probably won't want to get started about.
+Computer science. I like math better though. I chose it only because of the messed up immigration system here, which you probably won't want to get me started about.
 
 ## How do you like here so far?
 I'm having the best time of my life, thank you very much for asking. I visit my therapist regularly and submitted petitions if I experienced anything that's not bearable. Having control over life feels great.
