@@ -23,7 +23,7 @@ Ye. English word "yes" without the s. Try your best not to pronounce it as "yay"
 ## Where are you from?
 China. If you insist on asking for the details, I was born in Wuhan and grew up in Shanghai. 
 
-No, Shanghai is not close to Beijing. It takes 5 hours by high-speed train if you know what that is.
+No, Shanghai is not close to Beijing. It takes 5 hours by [high-speed rail](https://en.wikipedia.org/wiki/High-speed_rail) if you know what that is.
 
 ## What's your major?
 Computer science. I like math better though. I chose it only because of the messed up immigration system here, which you probably won't want to get me started about.
@@ -35,7 +35,7 @@ I'm having the best time of my life, thank you very much for asking. I visit my 
 Yes and no. It really depends. I'm not famous enough for their attention, and I never will be. Will I come out to another random Chinese about my sexuality or political stance? No. Is it because of the government? A little bit, but it feels like arguing with a Trumptard, just with [risks](https://www.propublica.org/article/even-on-us-campuses-china-cracks-down-on-students-who-speak-out).
 
 ## What's your plan for the future? Will you stay in the country or go back to China?
-Thank you for your concern. No worries, USCIS and DHS made sure I wouldn't be able to stay here. The good news is, the world has more than two countries... 
+Thank you for your concern. No worries, [USCIS](https://www.uscis.gov/working-in-the-united-states/h-1b-specialty-occupations) and [DHS](https://www.uscis.gov/green-card/green-card-processes-and-procedures/employment-authorization-document) made sure I wouldn't be able to stay here. The good news is, the world has more than two countries... 
 
 ## Your English is very good. How long have you learned?
 Thank you very much, I did suffer a loooot when I was in highschool thanks to IB English A Lang&Lit HL and SAT. My English is in fact better than my mandarin besides reading speed. For your interest, I started in kindergarten. 
