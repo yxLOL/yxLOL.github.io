@@ -12,6 +12,9 @@ Here's a list of frequently asked question I received over my one-year's stay in
 
 I still choose to write this section because it's not just *my* struggle dealing with the world's most random questions out of curiosity. Those questions are not harmful in general, yet some of them represent the lack of understanding of the bare minimum common ground between any two individuals on earth, that we are both humans. If you will ask the questions in a different way if I'm not Chinese/I don't have a notable accent, don't ask the question you are going to ask. Hold back your curiosity a little. This might provide you some insights about how humans are just... humans. 
 
+# How are you doing?
+I know you are just being polite, and the question is not too different from saying "hello". You won't want to know.
+
 ## What's Your Name? How to pronounce it?
 Ye. English word "yes" without the s. Try your best not to pronounce it as "yay", even though it does sound more delightful. 
 
