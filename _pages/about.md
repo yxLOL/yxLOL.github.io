@@ -32,7 +32,7 @@ Computer science. I like math better though. I chose it only because of the mess
 I'm having the best time of my life, thank you very much for asking. I visit my therapist regularly and submitted petitions if I experienced anything that's not bearable. Having control over life feels great.
 
 ## Do you (Chinese people) get in trouble blaming the CCP?
-Yes and no. It really depends. I'm not famous enough for their attention, and I never will be. Will I come out to another random Chinese about my sexuality or political stance? No. Is it because of the government? A little bit, but it feels like arguing with a Trumptard, just with risks.
+Yes and no. It really depends. I'm not famous enough for their attention, and I never will be. Will I come out to another random Chinese about my sexuality or political stance? No. Is it because of the government? A little bit, but it feels like arguing with a Trumptard, just with [risks](https://www.propublica.org/article/even-on-us-campuses-china-cracks-down-on-students-who-speak-out).
 
 ## What's your plan for the future? Will you stay in the country or go back to China?
 Thank you for your concern. No worries, USCIS and DHS made sure I wouldn't be able to stay here. The good news is, the world has more than two countries... 
