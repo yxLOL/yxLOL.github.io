@@ -15,6 +15,8 @@ I still choose to write this section because it's not just *my* struggle dealing
 # How are you doing?
 I know you are just being polite, and the question is not too different from saying "hello". You won't want to know.
 
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/GwpCb0qW-6Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
 ## What's Your Name? How to pronounce it?
 Ye. English word "yes" without the s. Try your best not to pronounce it as "yay", even though it does sound more delightful. 
 
