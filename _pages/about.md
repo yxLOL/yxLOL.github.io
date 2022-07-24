@@ -1,5 +1,5 @@
 ---
-title: About Me
+title: FAQ
 author: Liz Ye
 date: 2022-02-04
 category: Jekyll
@@ -8,4 +8,29 @@ layout: post
 
 Hello, This is Ye, currently a CS undergrad in the US of A. One day as I was procrastinating to review for my last final exam, I decided to build this blog so that I can organize notes digitally. I hope you find it somehow useful. 
 
-(source: [https://www.instagram.com/p/Cdso-WKLwYb/](https://www.instagram.com/p/Cdso-WKLwYb/))
+Here's a list of frequently asked question I received over my one-year's stay in the country, and I provide the most honest answer I could offer. I've met a lot of very nice people here, and I think I'm more than lucky and definitely very privilleged to have the opportunity to study here. I still choose to write this section because it's not just *my* struggle dealing with the world's most random questions out of curiosity. Those questions are not harmful in general, yet they represent the lack of understanding of the bare minimum common ground between any two individuals on earth, that we are both humans. If you will ask the questions in a different way if I'm not Chinese/I don't have a notable accent, don't ask the question you are going to ask. Hold back your curiosity a little. This might provide you some insights about how humans are just... humans. 
+
+## What's Your Name? How to pronounce it?
+Ye. English word "yes" without the s. Try your best not to pronounce it as "yay", even though it does sound more delightful. 
+
+## Where are you from?
+China. If you insist on asking for the details, I was born in WUhan and grew up in Shanghai. 
+
+No, Shanghai is not close to Beijing. It takes 5 hours by high-speed train if you know what that is.
+
+## What's your major?
+Computer science. I like math better though. I chose it only because of the messed up immigration system here, which you probably won't want to get started about.
+
+## How do you like here so far?
+I'm having the best time of my life, thank you very much for asking. I visit my therapist regularly and submitted petitions if I experienced anything that's not bearable. Having control over life feels great.
+
+## Do you (Chinese people) get in trouble blaming the CCP?
+Yes and no. It really depends. I'm not famous enough for their attention, and I never will be. Will I come out to another random Chinese about my sexuality or political stance? No. Is it because of the government? A little bit, but it feels like arguing with a Trumptard, just with risks.
+
+## What's your plan for the future? Will you stay in the country or go back to China?
+Thank you for your concern. No worries, USCIS and DHS made sure I wouldn't be able to stay here. The good news is, the world has more than two countries... 
+
+## Your English is very good. How long have you learned?
+Thank you very much, I did suffer a loooot when I was in highschool thanks to IB English A Lang&Lit HL and SAT. For your interest, I started in kindergarten. 
+
+Do ask questions if you have any. You really can't ask worse questions than what I've added above. If you do, I would update the list accordingly. 
