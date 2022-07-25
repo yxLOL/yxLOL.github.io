@@ -1,7 +1,7 @@
 ---
-title: FAQ
+title: About me and FAQ
 author: Liz Ye
-date: 2022-02-04
+date: 2022-07-25
 category: Jekyll
 layout: post
 ---
