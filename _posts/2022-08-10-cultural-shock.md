@@ -7,7 +7,7 @@ layout: post
 *本篇創作與一年前，彼時剛到美國求學，一天十個culture shock（此處有誇張）*
 
 
-My language partner reminded me that things would not turns out like what I want, so making it to school would be the real goal here.
+My language partner reminded me that things would not turn out like what I want, so making it to school would be the real goal here.
 
 I guess that would be the perfect conclusion of my first 48 hour arriving in the US of A.
 
