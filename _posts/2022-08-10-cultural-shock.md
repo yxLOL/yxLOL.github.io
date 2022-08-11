@@ -150,3 +150,28 @@ how are you doing
 I was like…  
 
 你就能假装你是个美国人
+
+---
+
+（一年後的補充）
+
+## Your English is Good
+
+說實話現在也沒有當時那麼深刻的印象了，但是這位在BoA工作的十分delightful的中年白人女性還是讓我記憶猶新，可能是因為她是第一個（但絕對不是最後一個）誇我英語好的人吧。
+
+不，我真的沒有誇自己的意思，因為我學了15年了......真沒什麼好特別驕傲的。
+
+當時是和室友一起見她，我們需要開戶，流程基本走過了以後（也就是說她已經知道我是大一的中國留學生之後），她的原話大概是這樣的
+
+> Oh your English is very good. And it's so good to have both of you here. You know, sometimes some students English is not good enough, so you guys can explain to each other.
+
+讓我記憶最深刻的不是她說的話，而是我活這麼久第一次在現實生活中碰到的講一切東西看起來都非常delightful的中年女性形象。當然啦，我也真的不知道怎麼回覆這段話，我相信她當時也不是故意讓我感到不適的，但是呢... 嗯。
+
+---
+
+## 後記
+
+現在往回看很多東西也有了更多理解，但我還是只對錯別字和format進行了修改，因為確實是難得的初來乍到的視角的紀錄。我可能抽空會寫一寫我學到了什麼，但是想在這裡說明的是，我並不討厭這裡，只是當時感受到不同的東西太多了。隨著時間的推移我發現similarities比difference要多，我以為的不同事物很可能只是我不夠瞭解。It has been quite a journey for me,而我也希望你一路順利。
+
+Best Regards,
+Anita
