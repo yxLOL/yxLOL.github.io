@@ -1,5 +1,5 @@
 ---
-title: About me and FAQ
+title: About Me and FAQ
 author: Liz Ye
 date: 2022-07-25
 category: Jekyll
