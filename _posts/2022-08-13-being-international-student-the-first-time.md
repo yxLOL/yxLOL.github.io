@@ -1,5 +1,5 @@
 ---
-title: AMA 在北美知名小镇尝试当一个好国际生～～并差点失败～～
+title: AMA 在北美知名小镇尝试当一个好国际生~~并差点失败~~
 date: 2022-08-13
 category: journal
 layout: post
