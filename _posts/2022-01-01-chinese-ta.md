@@ -1,5 +1,5 @@
 ---
-title: Chinese 101 Information Center
+title: Chinese 101 Informal Information Center
 date: 2022-01-01
 category: notes
 layout: post
