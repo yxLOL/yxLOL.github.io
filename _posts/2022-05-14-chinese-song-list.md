@@ -9,6 +9,10 @@ Chinese Songs I enjoy a lot. Some in Cantonese some in mandarin. Introduction to
 
 I hope you enjoy some of them. 
 
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/XFaQwZyPOZQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+This is from my favorite choir (based in Shanghai). They had some really hilarious productions. This one talks about overwork culture from the point of view of someone who's exhausted from work. 
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2oSyibxNEOnHUYh1J0xNYX?utm_source=generator" width="80%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
 In case you are interested in how I feel every once in a while reading all the news about the country I come from. Just kidding. It refers to a tragic event of [bombings in Shijiazhuang](https://en.wikipedia.org/wiki/Shijiazhuang_bombings) on March 16, 2001. The mood in the song also responds to the sense of disillusion in the North East region of China after privatization of state-owned enterprises (as part of market reform started in 1970s), which resulted in stagnation in the area which they still haven't escaped from today. (In mandarin)
