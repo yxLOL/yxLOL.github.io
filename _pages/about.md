@@ -44,6 +44,4 @@ Thank you very much, I did suffer a loooot when I was in highschool thanks to IB
 
 Do ask questions if you have any. You really can't ask worse questions than what I've added above. If you do, I would update the list accordingly. 
 
-Now, if you really want to know more about Chinese international students, here's a video recommendation. I think it's close to what I've learned.
-
-<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/cQWlnTyOSig" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+Now, if you really want to know more about Chinese international students... I'm working on a project that should be released next spring if not early summer. It's a seminar I'm taking so procrastination is not an option anymore... 
