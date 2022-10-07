@@ -11,7 +11,7 @@ Hello and welcome to my... blog. I honestly still think it's just a very unorgan
 
 ## Chinese Education
 
-I found this [youtube video](https://youtu.be/H6RlWqL2W8Y) which stays true to what I experienced (but in highschool) before the pandemic.
+I found this [youtube video](https://youtu.be/H6RlWqL2W8Y) which stays true to what I experienced (but in highschool, and there are details that are different...) before the pandemic.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/H6RlWqL2W8Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
