@@ -15,7 +15,7 @@ This is from my favorite choir (based in Shanghai). They had some really hilario
 
 <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/fR85tjpcf34" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-And this one is a commedy piece. (It does have an English subtitle if you turn it up).
+And this one is a commedy piece （小品）. (It does have an English subtitle if you turn it up). A bit of context that would make you understand some of the humor: Wujiaochang/五角场 is in the Yangpu District (Guoding Road is also in this district), and is very far from Minghang District (where I grew up!). It's basically from the north eastern northern part to the south western part of Shanghai. Eastern China Normal University locates somewhere very far from the city center too. It's still an extravagent way of complaining about the matter because Shanghai is really not that huge... but it's a commedy piece.
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2oSyibxNEOnHUYh1J0xNYX?utm_source=generator" width="80%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
