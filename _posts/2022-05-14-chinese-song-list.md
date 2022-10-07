@@ -27,7 +27,7 @@ This one is about HK... I do like the structure of the song as a math nerd lol (
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2huQT8EsB4hJ7Wu67XLyBl?utm_source=generator" width="80%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
-Isabelle Huang certainly has a special talent. I think this song follows this very popular genre of retro classic (古风). Usually I don't like it, but this one might be an exception. The opening lines are form a famous poem 静夜思, which expresses nostalgia. (In mandarin)
+Isabelle Huang certainly has a special talent. I think this song follows this very popular genre of retro classic (古风). Usually I don't like it, but this one might be an exception. The opening lines are from a classical poem 静夜思, which expresses nostalgia with the motif of moon. (In mandarin)
 
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/6qlEgkjMbVNAIUbHKl8QLh?utm_source=generator" width="80%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
