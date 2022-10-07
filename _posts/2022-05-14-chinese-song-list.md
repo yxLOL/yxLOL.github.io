@@ -54,7 +54,7 @@ which translates as
 > Don't cry, [or] be sad, and don't give up  
 > I wish to be with you forever
 
-which does not really make sense now, but that was the mood in the 1990s HK, if anything.  (in Cantonese)
+which is... I don't know... Sort of uplifting？？I guess？？
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/track/2xsfwyT49o2OCoPieXMxQC?utm_source=generator" width="80%" height="80" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture"></iframe>
 
