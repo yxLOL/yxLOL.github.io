@@ -5,7 +5,7 @@ category: notes
 layout: post
 ---
 
-Hello and welcome to my... blog. I honestly still think it's just a very unorganized e-notebook, but I hope you find something helpful. Unfortunately I messed up the setting so the search function wouldn't work (I would fix it in the near future which means never). You can use the panel on the left (if you are viewing on a computer) to investigate to the tiltles more quickly. I apologize for any typos and grammar mistakes in any languages, and you are more than welcome to correct me by contacting me via email. 
+Hello and welcome to my... blog. I honestly still think it's just a very unorganized e-notebook, but I hope you find something helpful. Unfortunately I messed up the setting so the search function wouldn't work (I would fix it in the near future which means never). You can use the panel on the left (if you are viewing on a computer) to navigate to the tiltles more quickly. I apologize for any typos and grammar mistakes in any languages, and you are more than welcome to correct me by contacting me via email. 
 
 [Here's a list of resources on Chinese in general, which I should be updating soon](https://yxlol.github.io/yx/resource/2022-05-12-chinese-resources.html)
 
