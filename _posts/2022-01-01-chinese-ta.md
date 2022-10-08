@@ -14,7 +14,7 @@ Hello and welcome to my... blog. I honestly still think it's just a very unorgan
 
 ## Chinese Education
 
-First off, I encourage you to check the [Wikipaedia page on the topic (Engilsh)](https://en.wikipedia.org/wiki/Education_in_China)
+First off, I encourage you to check the [Wikipaedia page on the topic (Engilsh)](https://en.wikipedia.org/wiki/Education_in_China) and also on the [education inequality in China](https://en.wikipedia.org/wiki/Education_inequality_in_China).
 
 I found this [youtube video](https://youtu.be/H6RlWqL2W8Y) which stays true to what I experienced (but in highschool, and there are details that are different...) before the pandemic.
 
