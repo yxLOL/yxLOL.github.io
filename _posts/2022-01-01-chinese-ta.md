@@ -10,6 +10,11 @@ Hello and welcome to my... blog. I honestly still think it's just a very unorgan
 [Here's a list of resources on Chinese in general, which I should be updating soon](https://yxlol.github.io/yx/resource/2022-05-12-chinese-resources.html)
 
 [And here's a song list I doubt if I can update, since I listen to German songs almost exclusively these days](https://yxlol.github.io/yx/resources/2022-05-14-chinese-song-list.html)
+
+Before you delve into the sea of information, I want to apologize if you find it overwhelming. I do have the habit of clustering information (so whatever I found that's relevant and worth looking at by my standard), I would put them together. So feel free to ignore whatever you are not interested in. You **don't** need these information **at all** to learn Chinese. (that's why I call it informal)
+
+I hope you find some of them helpful. And again, feel free to request materials, because I do enjoy finding random information...
+
 ---
 
 ## Chinese Education
@@ -35,6 +40,8 @@ I also have to point out that as inconsistent as China is, my experience is very
 You might want to watch this [vice video](https://www.youtube.com/watch?v=Pa7eZffuQps) about the cracking down of outside of school classes/课外班/补习班. It would require a general content warning but it might be less depressing than the documentary above (at least from my POV)
 
 <iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/Pa7eZffuQps" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+I also found a very interesting [article](https://web.archive.org/web/20221002230907/https://www.163.com/dy/article/HIN6B6EC0516HGOR.html) on why we have this crackdown (in Chinese). The article has been deleted on social media, but of course I found an archive. I can talk about censorship and archiving information at some point. 
 
 Articles on Involution（内卷）！  
 
