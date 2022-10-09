@@ -13,13 +13,13 @@ Hi! 我是 Ye，在William & Mary读大二。我是一个常年在我校Chinese 
 
 Chinese International Students are becoming more politically active. And along the way, they are upending stereotypes of both "the brainwashed Chinese student" and the "Westernized international student," and redefining what it is to be Chinese in America.  
 
-目前我对somehow engage with CSA/activism 的留学生的经历很感兴趣。我希望我的报道可以破除中国留学生铁板一块的刻板印象，也想用你们的故事motivate想做类似事情但感到无能为力中国学生。我很喜欢CSA的一点是它是一个de-centralized group，我也希望我的报道中能反应大家不同的观点和walks of life, yet with the common endeavor to make the world a better place. 
+目前我对somehow engage with CSA/activism 的留学生的经历很感兴趣。我希望我的报道可以破除中国留学生铁板一块的刻板印象，也想用你们的故事motivate想做类似事情但感到无能为力中国学生。我很喜欢CSA的一点是它是一个de-centralized group，我也希望我的报道中能反应大家不同的观点和all walks of life, yet with the common endeavor to make the world a better place. 
 
 采访的guiding questions 可以在[这里查看](https://docs.google.com/document/d/16LaZvtJubm-KNsPO63dciHzkyaZy9jWmTvO2f6Ad3CI/edit?usp=sharing) 
 
 我自己8月参加了CSA的线上活动，也借此机会认识了一些朋友。不管我最后有没有真的把这个题材变成报道，我都想和更多CSA的人接触，可能的话进行一些advocacy。
 
-采访会尊重你的匿名意愿（详情问卷里的house keeping问卷中会解释清楚），我作为学生没办法提供任何回报，但如果我们聊的特别开心我可以receive一笔travel fund来和你见面（...怎么感觉更creepy了）
+采访会尊重你的匿名意愿（详情问卷里的house keeping问卷中会解释清楚），我作为学生没办法提供任何回报，但如果我们聊的特别开心我也许可以得到一笔travel fund来和你见面（...怎么感觉更creepy了）
 
 In case 你想在接受采访前多了解我一些，你看到的这个网页是我的个人blog的一部分，欢迎explore我的思考碎片。
 
