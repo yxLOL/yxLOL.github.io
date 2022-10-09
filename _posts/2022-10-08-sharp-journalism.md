@@ -23,6 +23,6 @@ Chinese International Students are becoming more politically active. And along t
 
 In case 你想在接受采访前多了解我一些，你看到的这个网页是我的个人blog的一部分，欢迎explore我的思考碎片。
 
-谢谢你读到这里，期待我们的聊天，也祝你一切顺利。
+谢谢你读到这里，期待与你聊天，也祝你一切顺利。
 
 *“今年不会祝您幸福，因为它知道您的身体和精神正在经历重创。但它需要您保持必要的力量和清醒，去努力维持您自已的宁静与尊严。”——加缪*
