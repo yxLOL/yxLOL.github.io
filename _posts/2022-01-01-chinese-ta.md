@@ -11,7 +11,7 @@ Hello and welcome to my... blog. I honestly still think it's just a very unorgan
 
 [And here's a song list I doubt if I can update, since I listen to German songs almost exclusively these days](https://yxlol.github.io/yx/resources/2022-05-14-chinese-song-list.html)
 
-Before you delve into the sea of information, I want to apologize if you find it overwhelming. I do have the habit of clustering information (so whatever I found that's relevant and worth looking at by my standard), I would put them together. So feel free to ignore whatever you are not interested in. You **don't** need these information **at all** to learn Chinese. (that's why I call it informal)
+Before you delve into the sea of information, I want to apologize if you find it overwhelming. I do have the habit of clustering information (so whatever I found that's relevant and worth looking at by my standard, I would put them together). So feel free to ignore whatever you are not interested in. You **don't** need these information **at all** to learn Chinese. (that's why I call it informal)
 
 I hope you find some of them helpful. And again, feel free to request materials, because I do enjoy finding random information...
 
