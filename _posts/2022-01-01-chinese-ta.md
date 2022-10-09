@@ -46,6 +46,9 @@ Here's an [article (in English)](https://www.readingthechinadream.com/lai-youxua
 
 Here's a fun piece from [What's on Weibo](https://www.whatsonweibo.com/the-concept-of-involution-neijuan-on-chinese-social-media/#:~:text=As%20explained%20by%20Jialing%20Xie,grows%2C%20per%20capita%20wealth%20decreases.) which looks at what it means on the social media (another piece of reading I shamelessly took from the China Debate).
 
+And of course, there are numerous TV shows that are relevant. Here's [one](https://youtu.be/mTMb8e_gDzE) I can recall. (With English Subtitle on youtube).
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/mTMb8e_gDzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ---
 
