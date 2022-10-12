@@ -59,6 +59,26 @@ And of course, there are numerous TV shows that are relevant. Here's [one](https
 
 ---
 
+# How to call your partner in Chinese?
+
+*A quick **biased** review of all the options* 
+
+I just realized certain biases about the perceptions of the language is unavoidable, so I just ~~gave up~~.
+
+1. 男朋友/女朋友：Most common ones, also applicable for lesbian couples and gay male couples
+2. 妻子，丈夫: (wife, husband), terms for married couples, applicable for lesbian couples and male couples, but since legal same-sex marriage does not really exist, you would see queer couple using it outside of China sometimes, but not in mainland China. 
+3. 爱人：gender neutral, an *outdated* way of referring to the partner (your own or someone else's) e.g 我爱人 (My partner), 她爱人 (her partner). No it's not a term to express affectionation, even though the translation might suggest so.
+4. 伴侣: gender neutral, a very formal way of addressing someone's partner. Not that often in conversations I'd say. You could... 
+5. 对象: gender neutral, assumption of heterosexual relationship in mainland China but you don't have to explain anyway (?). Usually referring to unmarried partner, but it does implied this is a serious relationship. 
+6. 家属：gender neutral. My friends who are on average 8 years older than I am use it quite often, but it's mostly for married couples. e.g 我家属 (my partner), xxx的家属 (xxx's partner)
+
+-to be continued-
+
+
+
+
+---
+
 （In Progress）
 
 I asked my (one and almost only) Chinese friend what obscure things Chinese learners should know about, and she sent me [this article](https://chaoyangtrap.house/shaxian-cant-be-fucked-with/).
