@@ -66,11 +66,23 @@ And of course, there are numerous TV shows that are relevant. Here's [one](https
 I just realized certain biases about the perceptions of the language is unavoidable, so I just ~~gave up~~.
 
 1. 男朋友/女朋友：Most common ones, also applicable for lesbian couples and gay male couples
+   - Somehow if you use "npy" it can refer to both 男朋友 and 女朋友 ：）it's not completely gender neutral but it is... better than including the gender directly??
 2. 妻子，丈夫: (wife, husband), terms for married couples, applicable for lesbian couples and male couples, but since legal same-sex marriage does not really exist, you would see queer couple using it outside of China sometimes, but not in mainland China. 
 3. 爱人：gender neutral, an *outdated* way of referring to the partner (your own or someone else's) e.g 我爱人 (My partner), 她爱人 (her partner). No it's not a term to express affectionation, even though the translation might suggest so.
 4. 伴侣: gender neutral, a very formal way of addressing someone's partner. Not that often in conversations I'd say. You could... 
 5. 对象: gender neutral, assumption of heterosexual relationship in mainland China but you don't have to explain anyway (?). Usually referring to unmarried partner, but it does implied this is a serious relationship. 
 6. 家属：gender neutral. My friends who are on average 8 years older than I am use it quite often, but it's mostly for married couples. e.g 我家属 (my partner), xxx的家属 (xxx's partner)
+7. 另一半: gender neutral. Literal translation would be "the other half". It sounds romantic but it really isn't a romantic way to address the person (in my opinion). 
+8. 队友: gender neutral. Literal translation is "teammate". Usually used between married couple. It sounds not romantic but I think people who use it usually have a good relationship with their partners. 
+
+
+---
+
+**爱称**
+
+You might also be interested how people address their partners, and... well, it really... depends on the couple. I am unfortunately not the best source for this, but I can give a few examples.
+
+
 
 -to be continued-
 
