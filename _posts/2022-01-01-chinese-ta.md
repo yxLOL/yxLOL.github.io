@@ -79,10 +79,10 @@ I just realized certain biases about the perceptions of the language is unavoida
 
 ---
 
-Some instagram accounts to follow if you like meme, activism, curious about what on earth is happening in China and among Chinese people, and kind of care about them (which includes me).
+Some instagram accounts to follow if you like meme, activism, curious about what on earth is happening in China and among Chinese people, and kind of care about them (which includes me, so if you don't... you really don't have to tell me).
 
 - [Citizen Daily 公民日报](https://www.instagram.com/citizensdailycn/): originally a meme page, but then it becomes a collective activism account.
-- [Confusing China 迷惑中文](https://www.instagram.com/confusingchina/): I mean it is a confusing country... very dark humor if you are Chinese, so you might not get it right away...
+- [Confusing China 迷惑中國](https://www.instagram.com/confusingchina/): I mean it is a confusing country... very dark humor if you are Chinese, so you might not get it right away...
 - [Northern Square 北方广场](https://www.instagram.com/northern_square/): A more depressed version of citizen Daily, but you know it's Chinese experience... 
 
 -to be continued-
