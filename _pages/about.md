@@ -38,7 +38,7 @@ Yes and no. It really depends. I'm not famous enough for their attention, and I 
 Thank you for your concern. No worries, [USCIS](https://www.uscis.gov/working-in-the-united-states/h-1b-specialty-occupations) and [DHS](https://www.uscis.gov/green-card/green-card-processes-and-procedures/employment-authorization-document) made sure I wouldn't be able to stay here. The good news is, the world has more than two countries... 
 
 ## Your English is very good. How long have you learned?
-Thank you very much, I did suffer a loooot when I was in highschool thanks to IB English A Lang&Lit HL and SAT. My English is in fact better than my mandarin besides reading speed. For your interest, I started in kindergarten. 
+Thank you very much for noticing, I did suffer a loooot when I was in highschool thanks to IB English A Lang&Lit HL and SAT. My English is in fact better than my mandarin besides reading speed. For your interest, I started in kindergarten. 
 
 ---
 
