@@ -26,7 +26,7 @@ China. If you insist on asking for the details, I was born in Wuhan and grew up 
 No, Shanghai is not close to Beijing. It takes 5 hours by [high-speed rail](https://en.wikipedia.org/wiki/High-speed_rail) if you know what that is.
 
 ## What's your major?
-Computer science. I like math better though. I chose it only because of the messed up immigration system here, which you probably won't want to get me started about.
+Honestly, undeclared. Something cs & math related. Not that important to understand me as a human because I'm not a tool, contrary to what you think I am.
 
 ## How do you like here so far?
 I'm having the best time of my life, thank you very much for asking. I visit my therapist regularly and submitted petitions if I experienced anything that's not bearable. Having control over life feels great.
