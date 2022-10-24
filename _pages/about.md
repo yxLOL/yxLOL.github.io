@@ -6,7 +6,7 @@ category: Jekyll
 layout: post
 ---
 
-Hello, This is Ye, currently a CS undergrad in the US of A. One day as I was procrastinating to review for my last final exam, I decided to build this blog so that I can organize notes digitally, and you can find it [here](https://yxlol.github.io/yx/notes/2022-05-12-china-debate.html). I hope you find it somehow useful. 
+Hello, This is Ye, currently a applied stat undergrad in the US of A. One day as I was procrastinating to review for my last final exam, I decided to build this blog so that I can organize notes digitally, and you can find it [here](https://yxlol.github.io/yx/notes/2022-05-12-china-debate.html). I hope you find it somehow useful. 
 
 Here's a list of frequently asked question I received over my one-year's stay in the country, and I provide the most honest answer I could offer. I've met a lot of very nice people here, and I think I'm more than lucky and definitely very privilleged to have the opportunity to study here. This is not a complaint about the country, or Americans, or anything, believe it or not.
 
