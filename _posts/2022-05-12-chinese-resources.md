@@ -13,6 +13,11 @@ tags: resources
    - My penpal from Brazil shared it with me. 
    - I think it is a good resource for starters to get used to the pronounciation of the language, especially because it includes all the tones. 
 
+## Vocabulary
+- [Essential Chinese for English Speakers Anki Deck](https://ankiweb.net/shared/info/1322310186)
+  - A recommendation by a friend who learned Chinese extensively (then quitted recently to focus on Japanese)
+  - According to him, expanding vocab by learning the Pinyin & pronounciation first paired with English meanings would be helpful in expanding things you can say and keep up the motivation. It also provides the characters for those of you who still want to be literate.
+  - Have fun (?)
 
 ## Recommended Texts
 
