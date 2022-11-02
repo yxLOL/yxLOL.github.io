@@ -18,6 +18,7 @@ tags: resources
   - A recommendation by a friend who learned Chinese extensively (then quitted recently to focus on Japanese)
   - According to him, expanding vocab by learning the Pinyin & pronounciation first paired with English meanings would be helpful in expanding things you can say and keep up the motivation. It also provides the characters for those of you who still want to be literate.
   - Have fun (?)
+  - I learned English vocab, chemistry and econ definitions with anki (an open source software) for a while in high school, and I can confirm it might be useful. You can choose to memorize pronounciation and its definition, but of course you can always memorize the characters included in it too. It even has visuals and pronounciations that are not always produced by robots (so, more close to how I would pronounce them). (you can download anki [here](https://apps.ankiweb.net/))
 
 ## Recommended Texts
 
