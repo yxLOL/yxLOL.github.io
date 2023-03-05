@@ -2,4 +2,4 @@ _site/
 _draft/
 .jekyll-cache/
 .DS_Store
-_post/__hide/
+_posts/__hide/
