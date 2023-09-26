@@ -104,8 +104,6 @@ Aggression
 
 It ignores that people will act differently in different situations...
 
-sunday.scaries
-
 Person-situation 
 
 Walter Mschel focused attention on the extent to which situational factors govern behavior
