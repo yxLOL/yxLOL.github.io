@@ -1,5 +1,5 @@
 ---
-title: psych notes: personality
+title: psych notes personality
 date: 2023-09-25
 category: notes
 layout: post
@@ -21,12 +21,12 @@ Psychodynamic Perspectives - focus on unconscious mental forces (how on earth do
 
 algorithm 一样的consciousness
 
-conscious (contact with the outside world) - UI
-ego: reality principle secondary-process thinking (compiler)
-preconscious: material just beneath the surface of awareness (retrievable data)
+conscious (contact with the outside world) - UI  
+ego: reality principle secondary-process thinking (compiler)  
+preconscious: material just beneath the surface of awareness (retrievable data)  
 ID: pleasure principle, primary-process thinking (底层代码/low-level code)
-superego: moral imperitives (algorithms) 
-unconscious: difficult to retrieve material, well below the surface of awareness (data structure for me)
+superego: moral imperitives (algorithms)  
+unconscious: difficult to retrieve material, well below the surface of awareness (data structure for me)  
 
 (I think Freud is basically describing a Catholic homosexual man who probably works for the church)
 
