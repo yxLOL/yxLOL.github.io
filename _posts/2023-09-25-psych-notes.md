@@ -5,9 +5,9 @@ category: notes
 layout: post
 ---
 
-Two types of narcissism:
-Grandiose narcissism is characterized by arrogance, extraversion, immodesty, and aggressiveness
-Vulnerable narcissism is characterized by hidden feelings of inferiority, introversion, neuroticism, and a need for recognition
+Two types of narcissism:  
+Grandiose narcissism is characterized by arrogance, extraversion, immodesty, and aggressiveness;  
+Vulnerable narcissism is characterized by hidden feelings of inferiority, introversion, neuroticism, and a need for recognition  
 
 (I still don't know why we are talking about this for so long)
 
@@ -21,27 +21,28 @@ Psychodynamic Perspectives - focus on unconscious mental forces (how on earth do
 
 algorithm 一样的consciousness
 
-conscious (contact with the outside world) - UI  
-ego: reality principle secondary-process thinking (compiler)  
-preconscious: material just beneath the surface of awareness (retrievable data)  
-ID: pleasure principle, primary-process thinking (底层代码/low-level code)
-superego: moral imperitives (algorithms)  
-unconscious: difficult to retrieve material, well below the surface of awareness (data structure for me)  
+- conscious (contact with the outside world) - UI  
+- ego: reality principle secondary-process thinking (compiler)  
+- preconscious: material just beneath the surface of awareness (retrievable data)  
+- ID: pleasure principle, primary-process thinking (底层代码/low-level code)
+- superego: moral imperitives (algorithms)  
+- unconscious: difficult to retrieve material, well below the surface of awareness (data structure for me)  
 
 (I think Freud is basically describing a Catholic homosexual man who probably works for the church)
 
 What is his sexuality... (bisexual for sure)
 
-id - primitive, instinctive component of personality - demand immediate gratification of its urges
-ego - reality principle, seek to delay gratification until ddesired outcome
-superego - moral component that recommends right and wrong 
+- id - primitive, instinctive component of personality - demand immediate gratification of its urges
+- ego - reality principle, seek to delay gratification until ddesired outcome
+- superego - moral component that recommends right and wrong 
 
-Freud's model of personality dynamics, 
+Freud's model of personality dynamics 
+
 I think it's unnecessarily abstract. 
 
-Repression (e.g coping mechanisms for PTSD) keep disressing thoughts and feelings buried in the unconsciousness (masking)
-projection (sheer human stupidity) Attributing one's own thoughts, feelings, or motives to another
-displacement (worse human stupidity) Diverting emotional feelings (usually anger) from their original source to a substitute source 
+- Repression (e.g coping mechanisms for PTSD) keep disressing thoughts and feelings buried in the unconsciousness (masking)
+- projection (sheer human stupidity) Attributing one's own thoughts, feelings, or motives to another
+- displacement (worse human stupidity) Diverting emotional feelings (usually anger) from their original source to a substitute source 
 
 I think I should not do clinical psych anymore... This is STUPID
 
@@ -93,6 +94,7 @@ Skinner
 I'm too tired to think
 
 Behavioral Perspectives
+
 Bandura's Social Cognitive Theory (let's see what this old white man has come up with)
 
 - social cognitive theory agrees with behaviorism that personality is shaped through learning
