@@ -103,4 +103,4 @@ Last time my therapist asked me to write down how I felt in conseling. Besides f
 
 I do know it's not useless, and much more than something that brought me pain in the past. It opens up the corridor I can accept myself, since I did accomodate it, but I treated it unfairly. In reality it did bring me a lot of congruence, a lot of joy, helps me understand myself, brings me friendship and good memories. It is the other half of me, the one that conforms to social standards, controlled by my mom and spoiled by me that keeps hurting myself.
 
-But I have complex feelings as I am looking at it. Many people, including myself, has been really mean to it.
+But I have complex feelings as I am looking at it. Many people, including myself, have been really mean to it.
