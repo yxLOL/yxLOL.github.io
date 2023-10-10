@@ -105,7 +105,7 @@ I never met anyone like her again, and I do regret cutting off with her with a s
 
 I found it hard to be as open to others as I was to her, but I also accept it to be a punishment to my own decision. 
 
-We performed a piece together in our second year (I think it's Summers from Kikujiro). She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. That comment flattered me (while I was cogniscent of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed anyone), but the rehearsals and math classes did not reconnect us. 
+We performed a piece together in our second year (I think it's Summers from Kikujiro). She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. That comment flattered me (while I was cogniscent of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed everyone), but the rehearsals and math classes did not reconnect us. 
 
 I don't feel too bad about this, but it was extremely complicated. I mean, after all, with her orthodox Catholic background, I don't think we can connect in any way in the long run. She told me that she would just follow whatever the religion told her to do, since it's easier this way. 
 
@@ -113,11 +113,11 @@ I can only describe this encounter as unfortunate but somewhat rewarding.
 
 ---
 
-My mom almost knew everything, but she also did project her resentment towards my dad to the part of me that's similar to him. Under her influence, I also learned hate this part of myself, and so I splitted myself.
+My mom almost knew everything, but she also did project her resentment towards my dad to the part of me that's similar to him. Under her influence, I also learned to hate this part of me, and so I performed a dissection.
 
-Looking at this unwanted half of me, I became very emotional. I used to think that I am very privileged to get the type of attention I had, to go to those classes, those schools, and thus I have no excuse to complain. In fact I did enjoy most classes other than the math class, and I am very lucky to say this. They did also leave me no time that I have control over to become myself without masking. 
+Looking at this unwanted piece of myself, I became very emotional. I used to think that because I am very privileged to get the amount of attention I had, to go to those classes, attend private schools, I have no excuse to complain. In fact I did enjoy most classes other than the math class, and I am very lucky to say this. They did also leave me no time that I have control over to become myself without masking. 
 
-My pain does not come from these classes, but the systems of various levels that brought me self rejection, continuous and radical self rejection. I rejected my talents, preferences, things that make me different from others, especially the part that's simipar to my dad. With my mom's comments, I actively rejected my friendships , deep connections that are special, emotional support, all the vulnerable and imperfect exchange. The metaphor I used before was, as a woman, I grew up with education of toxic masculinity.
+My pain does not come from these classes or schools themselves, but the systems of various levels that brought me self rejection, continuous and radical self rejection. I rejected my talents, preferences, things that make me different from others, especially the part that's similar to my dad. With my mom's comments, I actively rejected my negative and postiive emotions, friendships, deep connections that are very special, all the vulnerable and imperfect exchanges. The metaphor I used before was, as a woman, I grew up with education of toxic masculinity.
 
 It's not completely so, since I still was educated to be more easy going. But I can't expose my vulnerabilities, because I will be worse off... because my mom was worse off, and so she hoped that I wouldn't be. My mom probably thought that to be a man but with women's social skills would be the strongest combination one can have. Well, under a patriarchal society that makes sense, but it's also forcing me to do things I can't do.
 
@@ -127,17 +127,19 @@ And so I made my life similar to cooking, but since cooking allows flexibility, 
 
 Last time my therapist asked me to write down how I felt in conseling. Besides feeling sympathetic (with the younger self), it was also a very hard moment to look back. I do need to look at it more, since it's also part of me. It almost is the root of all the vulnerabilities I have, and while I don't mind exposing it to others, I am always afraid that it will scare them. The part of myself that's so suicidal, painful, and depressed. The part of me I hated and deemed as useless.
 
-I now know that it's not useless, and it has been much more than something which brought me pain. It opened up the corridor I could accept myself. I did make various attempts to accomodate it, but overall I treated it unfairly. In reality it did bring me a lot of congruence, a lot of joy, helps me understand myself, brings me friendship and good memories. It is the other half of me, the one that conforms to social standards, controlled by my mom and spoiled by me that keeps hurting myself. I did need this mask to be functioning, but there has been a lot of side effects, and I can't deal with it anymore. 
+I now know that it's not useless, and it has been much more than something which brought me pain. It opened up the corridor I could accept myself. I did make various attempts to accomodate it, but overall I treated it unfairly. In reality it did bring me a lot of congruence, a lot of joy, helps me understand myself, brings me friendship and good memories. It is the other half of me, the one that conforms to social standards, controlled by my mom and spoiled by me that keeps hurting myself. I did need this mask to be functioning, but there has been a lot of side effects, and I can't endure them anymore. 
 
-I am finally crying as I wrote this. I felt triggered, sad, irritated, and pain. I am very glad that I rediscovered these memories, even though this process effectively gave me insomia two days in a row during the midterm week. 
+I am finally crying as I wrote this. I felt triggered, sad, irritated, and pain. I am also very glad that I rediscovered these memories and feelings, even though this process effectively gave me insomia two days in a row during the midterm week and prevent me from being productive. 
+
+I think they are more important than my midterms, or, honestly, anything else. 
 
 I do plan to call my former friend soon. I apologized last semester, but I think I should do it again. 
+
+It will be an apology for her and for myself. 
 
 ---
 
 Notes:
-Even as I was writing it, I was surpressing part of the emotion I have for the person that led me write this article. I did not sleep well, and so the second day I couldn't really focus on anything. Last time when I was in a similar state of shock, it was political depression (and anxiety). I don't know why in particular this is a very anxiety-inducing event, but talking to Aya, it seems that we are in a very similar position. 
+Even as I was writing it, I was surpressing part of the emotion I have for the person that led me write this article. I did not sleep well, and so the second day I couldn't really focus on anything. Last time when I was in a similar state of shock, it was political depression (and anxiety since it was my first time pursuing activism that actively). I don't know why in particular this is a very anxiety-inducing event, but talking to Aya, it seems that we are in a very similar position. 
 
 Aya said to me and herself to take it slowly. My brain can't properly think due to anxiety and exhaustion, so I guess that's what I would say about this for now.
-
-
