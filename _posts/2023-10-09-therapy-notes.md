@@ -67,7 +67,7 @@ When I was in kindergarten, the people I wanted to connect with the most were th
 
 My mom has an unbelievable tight control over me. Controlling me seemed to be easy, since I was not very confrontational, and till this day, I don't know my emotions most of the time.
 
-There were ore signs. 
+There were more signs. 
 
 I never enjoyed travelling, also because unfamiliar environment and humans gave me too much stimulation. The three-year-old me could only have meltdowns when my schedule was interrupted and I was forced to do all sorts of things on that trip.
 
@@ -77,9 +77,9 @@ However, meltdowns did not appear very often, since there has been very few trig
 
 My grandma was the only exception in this series of abuse. I was very open about myself, probably because she thinks I am good the way I am, and she wouldn't demand me to do anything against my will. Seeing me being me, my mom just thought I don't have autism. The sense of security I felt when I was with my grandma rarely happens as I grew up. Unfortunately, I could only visit her during the breaks, and so trips to Wuhan have been something I always looked forward to, and I always felt sad when I had to leave. I still remember staring out of the taxi windows as we went to the train station at night, hoping to remember everything I saw. In middle school I had my smartphone, and so I took pictures of the neighborhood my grandparents lived in. 
 
-My insecurity is a combination of many worries and anxieties that I breathe in on a daily basis. I learned to be fully prepared for any changes. It might seem to the others that I have always been trying new things, but they probably won't know that I rehearse almost everything in my head, consciously or unconsciously. When I really do it, it will not be completely new. 
+My insecurity is a combination of many worries and anxieties that I breathe in on a daily basis. I learned to be fully prepared for any changes. It might seem to the others that I have always been trying new things, but they probably won't know that I rehearse almost everything in my head, consciously or unconsciously. When I finally try them, it will not be completely new. 
 
-My coping mechanisms worked well, until it didn't. I became really depressed when they didn't work well anymore. 
+My coping mechanisms worked well, until they didn't. I became really depressed when they didn't work well anymore. 
 
 ---
 
@@ -93,31 +93,31 @@ And so I became suicidal--I said, it ends with me. It is a solution, and I don't
 
 I did manage to have friends when I grew up, and now I think back, most of them were not so conforming to the mainstream society. Each of them are wierd in their own rite. I never managed to keep connections as I move to different schools. Sometimes I'm not even able to keep them over the break. 
 
-In highschool, I met someone who thought about the world exactly the way I did, and I liked her very much--she was probably homophobic. My heart skipped a beat when she and another friend asked each other "you are not homosexual, right?" Their tone was playful, sarcastic, and unfriendly. 
+In highschool, I met someone who thought about the world exactly the way I did, and I liked her very much--just that she was probably homophobic. My heart skipped a beat when she and another friend asked "you are not homosexual, right?" Their tone was playful, sarcastic, and with a sense of disdaine when they said the word "homosexual". 
 
-I could only said no. I was very nervous as I said so, probably because I really wanted to come out to them, and in the mean time, I am afraid that they sensed anything.
+I could only said no. I was very nervous as I said so, probably because I was partially lying (I identified as bisexual at that time) and I was afraid that they sensed anything.
 
 We were walking down the stairs after the Monday morning assemblies during my freshman year of high school. It was a sad sunny day. 
 
-I still kept her as my friend, until my mom told me in my sophomore year, being a friend with her made me perform more poorly. Now I think about it, it's only because I became more like myself. We were not just cynical, but also more anti-social, and we lived in our own world. Being weird together felt great, but nonetheless I was conscious about the fact that we were weird. 
+I still kept her as my friend, until my mom told me in my sophomore year, being a friend with her made me perform more poorly. Now I think about it, it was most likely because I became more like myself. We were not just cynical, but also more anti-social, and we lived in our own world. Being weird together felt great, but nonetheless I was conscious about the fact that we were weird, and it was harder with my feelings for her. I had to withdraw. 
 
 I never met anyone like her again, and I do regret cutting off with her with a seemingly serious excuse. I knew it was an excuse, something most other people would approve of but I knew enough that she was innocent. 
 
 I found it hard to be as open to others as I was to her, but I also accept it to be a punishment to my own decision. 
 
-We performed a piece together in our second year, and people thought we looked like a couple. That comment flattered me, but the rehearsals did not reconnect us. 
+We performed a piece together in our second year. She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. That comment flattered me (while I was cogniscent of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed anyone), but the rehearsals and math classes did not reconnect us. 
 
-I mean, after all, with her orthodox Catholic background, I don't think we can connect in the long run. She told me that she would just follow whatever the religion told her to do, since it's easier this way. 
+I don't feel too bad about this, but it was extremely complicated. I mean, after all, with her orthodox Catholic background, I don't think we can connect in any way in the long run. She told me that she would just follow whatever the religion told her to do, since it's easier this way. 
 
-I can only describe this encounter as unfortunate. 
+I can only describe this encounter as unfortunate but somewhat rewarding. 
 
 ---
 
-My mom almost knows everything, but she also did project her resentment towards my dad to the part of me that's similar to him. I am influenced by her to also hate this part of me, and so I became at least two halves.
+My mom almost knew everything, but she also did project her resentment towards my dad to the part of me that's similar to him. Under her influence, I also learned hate this part of myself, and so I splitted myself.
 
-Looking at this half of me, I became very emotional. I used to think that I am very privileged to get the type of attention I had, to go to those classes, those schools, and thus I have no excuse to complain. In fact I did enjoy most classes other than the math class, and I am very lucky to say this. They did also leave no time that I have control over to become myself without masking. 
+Looking at this unwanted half of me, I became very emotional. I used to think that I am very privileged to get the type of attention I had, to go to those classes, those schools, and thus I have no excuse to complain. In fact I did enjoy most classes other than the math class, and I am very lucky to say this. They did also leave me no time that I have control over to become myself without masking. 
 
-My pain does not come from these classes, but the systems of all levels that brings me self rejection, continuous and radical self rejection. I reject my talent, preferences, things that make me different, especially the part that's simipar to my dad. With my mom's comments, I actively rejected my friendships , deep connections that are special, emotional support, all the vulnerable and imperfect exchange. The metaphor I used before was, as a woman, I grew up with education of toxic masculinity.
+My pain does not come from these classes, but the systems of various levels that brought me self rejection, continuous and radical self rejection. I rejected my talents, preferences, things that make me different from others, especially the part that's simipar to my dad. With my mom's comments, I actively rejected my friendships , deep connections that are special, emotional support, all the vulnerable and imperfect exchange. The metaphor I used before was, as a woman, I grew up with education of toxic masculinity.
 
 It's not completely so, since I still was educated to be more easy going. But I can't expose my vulnerabilities, because I will be worse off... because my mom was worse off, and so she hoped that I wouldn't be. My mom probably thought that to be a man but with women's social skills would be the strongest combination one can have. Well, under a patriarchal society that makes sense, but it's also forcing me to do things I can't do.
 
@@ -125,11 +125,13 @@ Even when I am away from my mom, from Shanghai, and everything associated with t
 
 And so I made my life similar to cooking, but since cooking allows flexibility, I thought it was enough.
 
-Last time my therapist asked me to write down how I felt in conseling. Besides feeling sympathetic (with the younger self), it was also a very hard moment to look back. I do need to look at it more, since it's also part of me. It used to be very sad and needs a lot of comfortting. It almost is all the vulnerabilities I have, and while I don't mind mentioning it to others, I am afraid that it will scare them. The part of myself that's so suicidal, painful, and depressed. The part of self I hate, and I deem as useless.
+Last time my therapist asked me to write down how I felt in conseling. Besides feeling sympathetic (with the younger self), it was also a very hard moment to look back. I do need to look at it more, since it's also part of me. It almost is the root of all the vulnerabilities I have, and while I don't mind exposing it to others, I am always afraid that it will scare them. The part of myself that's so suicidal, painful, and depressed. The part of me I hated and deemed as useless.
 
-I do know it's not useless, and much more than something that brought me pain in the past. It opens up the corridor I can accept myself, since I did accomodate it, but I treated it unfairly. In reality it did bring me a lot of congruence, a lot of joy, helps me understand myself, brings me friendship and good memories. It is the other half of me, the one that conforms to social standards, controlled by my mom and spoiled by me that keeps hurting myself.
+I now know that it's not useless, and it has been much more than something which brought me pain. It opened up the corridor I could accept myself. I did make various attempts to accomodate it, but overall I treated it unfairly. In reality it did bring me a lot of congruence, a lot of joy, helps me understand myself, brings me friendship and good memories. It is the other half of me, the one that conforms to social standards, controlled by my mom and spoiled by me that keeps hurting myself. I did need this mask to be functioning, but there has been a lot of side effects, and I can't deal with it anymore. 
 
-But I have complex feelings as I am looking at it. Many people, including myself, have been really mean to it.
+I am finally crying as I wrote this. I felt triggered, sad, irritated, and pain. I am very glad that I rediscovered these memories, even though this process effectively gave me insomia two days in a row during the midterm week. 
+
+I do plan to call my former friend soon. I apologized last semester, but I think I should do it again. 
 
 ---
 
