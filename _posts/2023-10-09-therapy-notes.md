@@ -55,39 +55,65 @@ layout: post
 
 ---
 
-Last session I mentioned that I was really pitying my past self. The younger me seems to be always struggling, always going for extremes.
+Last session I mentioned that I was really sympathetic for my past self. The younger me seemed to be always struggling, always going for extremes.
 
-However it seems that I have rarely thought about why exactly I was struggling. Well, it is only natural to deny it. I would love to think that I was fine. In addition, I am very alien to my own emotions.
+However it seems that I have rarely thought about why exactly I was struggling. Well, it is only natural to deny it. I would love to think that I was fine. In addition, I am very alienated to my own emotions.
 
-Recently I realized I might be on the autistic spectrum, evidence being my social interactions (or lack of thereof) starting from a very young age, part of the heritage from my dad. My mom's ressentment towards my dad is beyond obvious, and it results in her intervention of any parts of me that's similar to his "shortcomings", let alone social habits, something that is very obvious--of course, she wouldn't be willing to admit that I have such shortcomings. Her understanding of autism is very similar to other Chinese people's understanding, that it is a type of disease, but since it is, it is "curable". And thus I was thrown into the crowds, from the privavte kindergarten to a public one, to the English classes, ballet classes, theatre classes. These are actually not too bad by themselves, because it seems that I have good adapting skills. However, it was so effective that it fooled myself. I do know that I always need to "perform". In that theatre class, I was only average, but that has been enough to deal with realities, especially when I am willing to perform.
+Recently I realized I might be on the autistic spectrum, evidence being my social interactions (or lack of thereof) starting from a very young age, as well as part of the heritage from my dad. My mom's ressentment towards my dad is beyond obvious, and it results in her intervention of any parts of me that's similar to his "shortcomings", let alone social habits, something that is very obvious--of course, she wouldn't be willing to admit that I have such shortcomings. Her understanding of autism is very similar to other Chinese people's understanding, that it is a type of disease, but since it is one, she thinks that it is "curable". And thus I was thrown into the crowds, from the privavte kindergarten to a public one, to the English classes, ballet classes, theatre classes. These are actually not too bad by themselves, because it seems that I have good adapting skills. However, it was so effective that it fooled myself. I do know that I always need to "perform". In that theatre class, I was only average, but that has been enough to deal with realities, especially when I am willing to perform. 
 
-The younger me was in fact struggling with facing myself who appears to be very different from the other people. In my upbringing, I have always thought I lack certain things. I'm not tentative enough, not responsive enough, not social enough. I don't know enough about who to socialize with, not normal enough, but it's not like I'm smart enough not to be. Of course, I'm also not able to really fit in. I can never do it, but I also never know why. I thought it was because my mom stopped me from socialization, but I didn't think about the fact that she has always put me in circumstances for socialization, just that I was never able to do it.
+The younger me was in fact struggling with facing myself who appears to be very different from the other people. In my upbringing, I have always thought I lack certain things. I was not tentative enough, not responsive enough, not social enough. I didn't know enough about who to socialize with, and I was not normal enough, but it was also not the case that I was smart enough not to be. Of course, I was also not able to really fit in. I could never do it, but I also never knew why. I thought it was because my mom stopped me from socialization, but I didn't think about the fact that she has always put me in circumstances for socialization, just that I was never able to do it.
 
-When I was in kindergarten, the people I wanted to connect with the most were the other kids in the neighborhood. Maybe it was easier, since all we did was running around. There were more restraints in the civilized world in the classes I took. I was not allowed to socialize with them very often, because my mom looked down upon those kids' families, or in other words, they came from something very similar to my dad's background.
+When I was in kindergarten, the people I wanted to connect with the most were the other kids in the neighborhood. Maybe it was easier, since all we did was running around. There were more restraints in the civilized world, such as in the classes I took. I was not allowed to socialize with them very often, because my mom looked down upon those kids' families, or in other words, they came from a world very similar to my dad's background.
 
-One of the reason I am very sad is because I was controlled by my mom unbelievably tightly. Controlling me seems to be easy, since I am not very confrontational, and I don't know my emotions most of the time.
+My mom has an unbelievable tight control over me. Controlling me seemed to be easy, since I was not very confrontational, and till this day, I don't know my emotions most of the time.
+
+There were ore signs. 
 
 I never enjoyed travelling, also because unfamiliar environment and humans gave me too much stimulation. The three-year-old me could only have meltdowns when my schedule was interrupted and I was forced to do all sorts of things on that trip.
 
-However, meltdown did not appear that randomly, since there has been very few stimulations stronger than the ones my mom gave me, and obeying to her is a very reasonable choice, as it will gives me the least harm.
+My parents learned the hard way not to bring me on extreme travels ever again. 
 
-My grandmother was the only exception in this series of harm. I was very open about myself probably because she thinks I am good the way I am, and she won't demand me to do anything. Then my mom just thought I don't have autism. The sense of security with her rarely happens after I grew up. 
+However, meltdowns did not appear very often, since there has been very few triggers stronger than the ones my mom gave me, and obeying to her is a very reasonable choice, as it will give me the least harm.
 
-My insecurity is a combination of many worries and anxieties that I breathe in on a daily basis.
+My grandma was the only exception in this series of abuse. I was very open about myself, probably because she thinks I am good the way I am, and she wouldn't demand me to do anything against my will. Seeing me being me, my mom just thought I don't have autism. The sense of security I felt when I was with my grandma rarely happens as I grew up. Unfortunately, I could only visit her during the breaks, and so trips to Wuhan have been something I always looked forward to, and I always felt sad when I had to leave. I still remember staring out of the taxi windows as we went to the train station at night, hoping to remember everything I saw. In middle school I had my smartphone, and so I took pictures of the neighborhood my grandparents lived in. 
+
+My insecurity is a combination of many worries and anxieties that I breathe in on a daily basis. I learned to be fully prepared for any changes. It might seem to the others that I have always been trying new things, but they probably won't know that I rehearse almost everything in my head, consciously or unconsciously. When I really do it, it will not be completely new. 
+
+My coping mechanisms worked well, until it didn't. I became really depressed when they didn't work well anymore. 
 
 ---
 
-I have always let my intuition to protect me, and it has protected me well. I will turn people away romantically or not. Part of the rationale is that I have things I need to finish, and in a relationship I would have to face the ruins from the past. Another part of me just distrusts myself. There are things I deeply regretted, and even though they probably didn't harm the others that much, I think I have some abusive nature. It terrifies me, and ratioanlly I don't want to hurt anyone.
+I have always let my intuition to protect me, and it has protected me well. I will turn people away romantically or plantonicially. Part of the rationale is that I always have other priorities than exploring my connections with people, and in a relationship I would have to face the ruins from the past. That would take a lot of work and expose myself to all sorts of things I would rather forget.
 
-After all, I am very afraid to become people like my parents, even if it's just a little. I don't want others to become the victims of my own past.
+Another part of me distrusts myself. I have done things I deeply regretted, and even though they probably didn't harm the others that much (or at all), I think I have some abusive nature. It terrifies me, and ratioanlly I don't want to hurt anyone. Put it in another way, I am very afraid to become people like my parents, even if it's just a little. I don't want others to become the victims of my own past.
 
-And so I became suicidal--it ends with me. It is a solution, and I don't really want to continue my life, even though my body would protect myself with survival instinct.
+And so I became suicidal--I said, it ends with me. It is a solution, and I don't really want to continue my life (let alone having kids to continue that cycle), even though my body would protect myself with survival instinct.
 
-I did manage to have friends when I grew up, and now I think back, most of them are not so conforming to the mainstream society. Each of them are wierd in their own rite. In highschool, I met someone who thought about the world exactly the way I did, and I liked her very much--she was homophobic, so that didn't work out.
+---
 
-My mom told me, being a friend with her made me perform more poorly. Now I think about it, it's only because I became more like myself. It's not just cynical, but also more anti-social and living in my own world.
+I did manage to have friends when I grew up, and now I think back, most of them were not so conforming to the mainstream society. Each of them are wierd in their own rite. I never managed to keep connections as I move to different schools. Sometimes I'm not even able to keep them over the break. 
 
-My mom does know everything, but she also did project her resentment towards my dad to the part of me that's similar to him. I am influenced by her to also hate this part of me, and so I became at least two halves.
+In highschool, I met someone who thought about the world exactly the way I did, and I liked her very much--she was probably homophobic. My heart skipped a beat when she and another friend asked each other "you are not homosexual, right?" Their tone was playful, sarcastic, and unfriendly. 
+
+I could only said no. I was very nervous as I said so, probably because I really wanted to come out to them, and in the mean time, I am afraid that they sensed anything.
+
+We were walking down the stairs after the Monday morning assemblies during my freshman year of high school. It was a sad sunny day. 
+
+I still kept her as my friend, until my mom told me in my sophomore year, being a friend with her made me perform more poorly. Now I think about it, it's only because I became more like myself. We were not just cynical, but also more anti-social, and we lived in our own world. Being weird together felt great, but nonetheless I was conscious about the fact that we were weird. 
+
+I never met anyone like her again, and I do regret cutting off with her with a seemingly serious excuse. I knew it was an excuse, something most other people would approve of but I knew enough that she was innocent. 
+
+I found it hard to be as open to others as I was to her, but I also accept it to be a punishment to my own decision. 
+
+We performed a piece together in our second year, and people thought we looked like a couple. That comment flattered me, but the rehearsals did not reconnect us. 
+
+I mean, after all, with her orthodox Catholic background, I don't think we can connect in the long run. She told me that she would just follow whatever the religion told her to do, since it's easier this way. 
+
+I can only describe this encounter as unfortunate. 
+
+---
+
+My mom almost knows everything, but she also did project her resentment towards my dad to the part of me that's similar to him. I am influenced by her to also hate this part of me, and so I became at least two halves.
 
 Looking at this half of me, I became very emotional. I used to think that I am very privileged to get the type of attention I had, to go to those classes, those schools, and thus I have no excuse to complain. In fact I did enjoy most classes other than the math class, and I am very lucky to say this. They did also leave no time that I have control over to become myself without masking. 
 
@@ -104,3 +130,12 @@ Last time my therapist asked me to write down how I felt in conseling. Besides f
 I do know it's not useless, and much more than something that brought me pain in the past. It opens up the corridor I can accept myself, since I did accomodate it, but I treated it unfairly. In reality it did bring me a lot of congruence, a lot of joy, helps me understand myself, brings me friendship and good memories. It is the other half of me, the one that conforms to social standards, controlled by my mom and spoiled by me that keeps hurting myself.
 
 But I have complex feelings as I am looking at it. Many people, including myself, have been really mean to it.
+
+---
+
+Notes:
+Even as I was writing it, I was surpressing part of the emotion I have for the person that led me write this article. I did not sleep well, and so the second day I couldn't really focus on anything. Last time when I was in a similar state of shock, it was political depression (and anxiety). I don't know why in particular this is a very anxiety-inducing event, but talking to Aya, it seems that we are in a very similar position. 
+
+Aya said to me and herself to take it slowly. My brain can't properly think due to anxiety and exhaustion, so I guess that's what I would say about this for now.
+
+
