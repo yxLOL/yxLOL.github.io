@@ -105,7 +105,7 @@ I never met anyone like her again, and I do regret cutting off with her with a s
 
 I found it hard to be as open to others as I was to her, but I also accept it to be a punishment to my own decision. 
 
-We performed a piece together in our second year. She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. That comment flattered me (while I was cogniscent of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed anyone), but the rehearsals and math classes did not reconnect us. 
+We performed a piece together in our second year (I think it's Summers from Kikujiro). She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. That comment flattered me (while I was cogniscent of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed anyone), but the rehearsals and math classes did not reconnect us. 
 
 I don't feel too bad about this, but it was extremely complicated. I mean, after all, with her orthodox Catholic background, I don't think we can connect in any way in the long run. She told me that she would just follow whatever the religion told her to do, since it's easier this way. 
 
