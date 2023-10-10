@@ -85,7 +85,7 @@ My coping mechanisms worked well, until they didn't. I became really depressed w
 
 I have always let my intuition to protect me, and it has protected me well. I will turn people away romantically or plantonicially. Part of the rationale is that I always have other priorities than exploring my connections with people, and in a relationship I would have to face the ruins from the past. That would take a lot of work and expose myself to all sorts of things I would rather forget.
 
-Another part of me distrusts myself. I have done things I deeply regretted, and even though they probably didn't harm the others that much (or at all), I think I have some abusive nature. It terrifies me, and ratioanlly I don't want to hurt anyone. Put it in another way, I am very afraid to become people like my parents, even if it's just a little. I don't want others to become the victims of my own past.
+Another part of me distrusts myself. I have done things I deeply regretted, and even though they probably didn't harm the others that much (or at all), I think I have some abusive nature. It terrifies me, and ratioanlly I don't want to hurt anyone. Put it in another way, I am very afraid to become people like my parents, and any similarities I found in myself freak me out. I don't want others to become the victims of my own past.
 
 And so I became suicidal--I said, it ends with me. It is a solution, and I don't really want to continue my life (let alone having kids to continue that cycle), even though my body would protect myself with survival instinct.
 
@@ -105,7 +105,7 @@ I never met anyone like her again, and I do regret cutting off with her with a s
 
 I found it hard to be as open to others as I was to her, but I also accept it to be a punishment to my own decision. 
 
-We performed a piece together in our second year (I think it's Summers from Kikujiro). She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. That comment flattered me (while I was aware of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed everyone), but the rehearsals and math classes did not reconnect us. 
+We performed a piece together in the second semester of our second year (I think it's Summers from Kikujiro). She played the piano while I played the harmonica. It went not that great especially because we were performing among music students, but people thought we looked like a couple. This comment flattered me (while I was aware of the fact that it didn't make those people any less homophobic, since it was only romanticization and we did not display any intimacy, which would definitely have disturbed everyone), but the rehearsals and math classes did not reconnect us. 
 
 I don't feel too bad about this, but it was extremely complicated. I mean, after all, with her orthodox Catholic background, I don't think we can connect in any way in the long run. She told me that she would just follow whatever the religion told her to do, since it's easier this way. 
 
