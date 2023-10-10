@@ -99,7 +99,7 @@ I could only said no. I was very nervous as I said so, probably because I was pa
 
 We were walking down the stairs after the Monday morning assemblies during my freshman year of high school. It was a sad sunny day. 
 
-I still kept her as my friend, until my mom told me in my sophomore year, being a friend with her made me perform more poorly. Now I think about it, it was most likely because I became more like myself. We were not just cynical, but also more anti-social, and we lived in our own world. Being weird together felt great, but nonetheless I was conscious about the fact that we were weird, and it was harder with my feelings for her. I had to withdraw. 
+I still kept her as my friend, until my mom told me in my sophomore year, being a friend with her made me perform more poorly. Now I think about it, it was most likely because I became more like myself. We were not just cynical, but also more anti-social, and we lived in our own world. Being weird together felt great, but nonetheless I was conscious about the fact that we were weird, and it was a little hard to maintain our friendship with my feelings for her. I had to withdraw. 
 
 I never met anyone like her again, and I do regret cutting off with her with a seemingly serious excuse. I knew it was an excuse, something most other people would approve of but I knew enough that she was innocent. 
 
