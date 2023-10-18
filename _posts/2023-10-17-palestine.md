@@ -1,4 +1,3 @@
-
 ---
 title: Palestine Vigil Script
 date: 2023-10-17
