@@ -30,6 +30,8 @@ Now is a difficult time for Palestinian people and the ones who support them. Ev
 
 We need to recoganize both Palestinians' struggles and their resistance efforts. Nobody's free until everybody's free, said Fannie Lou Hammer. We want freedom for all Palestinians under occupation, that includes all women, all children, all queer people, and more.
 
+“The Palestinian cause is not a cause for Palestinians only, but a cause for every revolutionary, wherever he is, as a cause of the exploited and opposites see in our era.” As a Chinese feminist, I see the collective struggle that we are all fighting, against authoritarianism, against patriarchy. Please remember and believe that we will be fighting alongside each other in this journey. We should never despair.
+
 With that, thank you for listening.
 
 Palestine will be free.
