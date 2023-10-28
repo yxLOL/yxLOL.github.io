@@ -190,4 +190,10 @@ It might be the case, but right now if people ask me what my boyfriend is like, 
 
 I still don't. 
 
-Maybe he does want to tell me, but he does not know how to and has too much doubts. And so I'm left in the dark. 
+Maybe he does want to tell me, but he does not know how to and has too much doubts. And so I'm left in the dark. I would also say that I probably like him because of the challenge. 
+
+And again, I found these things to be too subtle for most people to care. It doesn't bother me that much, but whenever I think about it, with or without him around, it throws me off guard. I guess I have too much expectation of dating life in general. Or maybe I was pessimistic before I even have one. So it does bring me doubts of whether this should be continued... And if so, how should it look like?
+
+Maybe I will express this to him some day: think of me as a cat... we can stay together for a while (when I want to), but eventually within a few hours I would want to maintain a distance. It does not mean I hate you. I just need that space. Also, to satiefy my curiosity, I have to keep learning about you. My affection does not last otherwise.
+
+But we are talking about professional overthinker here... While I am not bothered by his stress that much, it does deter me from communicating my feelings. I overthink that he will overthink (because he probably will) my feelings. That really is a vicious cycle. 
