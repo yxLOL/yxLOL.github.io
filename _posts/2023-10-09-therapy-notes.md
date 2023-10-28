@@ -143,3 +143,51 @@ Notes:
 Even as I was writing it, I was surpressing part of the emotion I have for the person that led me write this article. I did not sleep well, and so the second day I couldn't really focus on anything. Last time when I was in a similar state of shock, it was political depression (and anxiety since it was my first time pursuing activism that actively). I don't know why in particular this is a very anxiety-inducing event, but talking to Aya, it seems that we are in a very similar position. 
 
 Aya said to me and herself to take it slowly. My brain can't properly think due to anxiety and exhaustion, so I guess that's what I would say about this for now.
+
+
+---
+
+10/27/2023
+
+
+1
+
+I was slightly triggered again as I saw that narcissist in a class I cannot avoid. He did nothing today. He did not try to initiate a conversation, and so this was the mere fact that I saw him again. Prof Gully was assuming that we are still good friends, since she is left completely in the dark. I was very anxious when he said he might stay here for the winter break (and then I remebered he doesn't really have a place to stay) and that he was asking about German house application, and that he might visit Stella. 
+
+I obviously cannot dictate whether he stays friends with Stella or not (knowing Stella), or if we will see each other in the German house, or if he will stay here. The prospect of having to see him was frustrating. I felt angry, because it seems like he does not understand the degree to which I don't want to see him. Well, granted, I didn't tell him that. It would be also kind of rude to say so, but I go for extremes when it comes to dealing with people I think that are abusive. I guess a part of it is also the fact that he hid all of the damages really well. I unconsciously judge my decisions all the time, and so I know just as well that I will not be justified (even though I don't really need to treat it in that manner). I also couldn't say anything because I don't want Prof Gully to be involved. 
+
+I am honestly fine with maintaining a distance with Stella just to avoid him. I guess I have the love hate relationship with Stella. I know her too well, and so I know that she will not really support me in anyway unless she completely agree with me, which she can't. 
+
+Worse part is, I unconsciously believed that I had to perform vulnerability for people to trust me, but I do feel vulnerable. The type of vulnerability I experience is not something I could describe (so I couldn't display it), but I know how normal people will feel vulnerable about. I was vulnerable, most likely (since I don't really feel anything) because I was frustrated by his mere existence, which reminds me of my relationship with my dad, and since I figured that I can be frustrated by his mere existence a month ago, I am also frustrated by myself not keeping a distance when I see the signs. With my dad, I constantly want to revenge, but I know that this urge was planted by my mom from a very young age, not something I myself intrinsincly have. The amount of self-hatred perpetuated by my self-judgement on the matter is enough to shut me down, and so I avoid this topic as much as I could. 
+
+Rationally, of course, I know that nobody will be able to do anything about these information/signs. But we are talking about being triggered here. And trauma response is freaking random. I never enjoy being triggered, and I doubt if anyone will. I also never really know what I can do when such events happen, or how to deal with that person... I think I will be ok to see him in class once every week, but I really wish he can vanish into the void. I am unsure what I should tell him to protect my sanity in the future. I don't know how he will take my words. I don't want him to use it against me, but he most definitely will. 
+
+I said that the only thing I really wanted him to do is to take a hard look on himself. It will be like this:
+
+Hey look, I know that you were really trying to be a good friend, but what you did was really messed up. You know that I hate when people micromanage me, disregard my autonomy, or desrespect my boundaries. As a narccissist, you really managed to do all of that. To me, and to people close to you. I want to applaud you for being able to do it at all, considering the fact that my trust issues usually reject people fairly quickly. I really thought if I let down my guard a little, since we knew each other for so long, everything will be fine. I didn't think you are a good person. I just naively believed that you will be somewhat kind at least to me. You probably tried, and then you failed. But this one is on you, not me. 
+
+You don't deserve any friends if you keep doing this. I cannot stay friends with you, or let's be more clear, I don't want to have any connections with you at all. But unfortunately I offered too much support, and now you are everywhere in my environment. Being a narccissist can be a result of your upbringing and your personality, and while Stella might be ok with it, I really am not. I grew up with one, and as I said, there's just no way I can date you. What you did was very similar in intent to what abusers in my life did to me. I don't think I can forgive you, let alone like you in any regard. 
+
+---
+
+2
+
+Dating life has been interesting. 
+
+It was more physical than I thought it will be. This is a result of me not having any proper verbal communication skills and my partner's tight schedule. Basically, when we see each other, either one of us is exhausted, or both of us are exhausted. And so we spend most of our time making out and trying to sleep. I can't deny that there are certain appeal, but for an asexual person whose emotion is disconnected to her feelings, it really only has that much appeal. Even when I do physically enjoy some of the moments, the longer we stayed together, the more incongruent I felt psychologically. 
+
+I said I enjoy talking to him the most. I guess I was slightly (or more like greatly) disappointed about what it turns out to be. I mean, I recoganize that there's no alternatives unless he changes his schedule, which has a possibility of close to 0. I really wish that when he is more energized, he will be willing to conduct more sophisticated conversation.
+
+I guess the other reason for this level of conversation is because he is way too interested in me as a person. Most people might really enjoy that, and I can't say it does not satisfy my vainity. But I am only that interested in myself... I don't love myself enough to say "Oh that's so sweet of him!"
+
+I can't. I am rather bothered. I don't need his affection as such, but I also know that it is a result of, again, my trauma with my mom who behaved in a similar manner.
+
+I feel very conflicted. One part of me misses him every moment I don't see him. Another part of me wants to run away. I am not sure how to bring this up, but I guess in this case I want to maintain a certain distance that is between us making out for hours and us having a conversation entirely about abstract concept. 
+
+I said we need to take it slow. Apparently, we didn't. This is nobody's mistake, but it is a mistake... Now I still feel that I don't know him enough. Usually I know more about a person by knowing their past, but obviously it does not apply to his case (which I am fine with). So I really need to try to understand him through what he willingly tells me. And he doesn't really want to do that, because he thinks that if I know a version of him that is different from what I thought, I would not like him anymore.
+
+It might be the case, but right now if people ask me what my boyfriend is like, I don't have any concrete answers. I don't even know what's my impression on him. Earlier this semester I wanted to maintain a distance with him for that reason. That was before we were dating. I just thought that there's no way I can understand him, and I am not exactly comfortable with it. 
+
+I still don't. 
+
+Maybe he does want to tell me, but he does not know how to and has too much doubts. And so I'm left in the dark. 
