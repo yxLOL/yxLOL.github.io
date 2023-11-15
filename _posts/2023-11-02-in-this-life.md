@@ -11,7 +11,7 @@ Now that I do have a boyfriend--what a surprise. I do not know what to do. I rea
 
 OK, we do have a lot to talk about, but we really don't have much time. 
 
-What do I want to achieve through talking about these? I don't know. Right now, I just want to know him more, but I don't know precisely how. What do I want to know? 
+What do I want to achieve through talking about these? I don't know. Right now, I just want to know him more, but I don't know precisely how. What do I want to know? That is the real question.
 
 ---
 
@@ -21,13 +21,13 @@ Upon hearing my boyfriend studies film, Datu said "oh, sophisticated people, the
 
 I love Datu because she always says things that are extremely relatable. 
 
-I said, well, precisely for that reason, I never thought I could date this person. He knows too much and seems to centers his life on film. I often don't think we are in the same world.
+I said, well, precisely for that reason, I never thought I could date this person. He knows too much and seems to center his life on film. I used to think that we are not living in the same world.
 
 "Is he progressive?"
 
 "I think so."
 
-"That's good." Datu finally gave some approval. I think she was curious, and so she asked, "Would your mom be OK with you dating a foreigner?"
+"That's good." Datu finally gave some approval. I think she was just curious when she asked, "Would your mom be OK with you dating a foreigner?"
 
 "No."
 
@@ -41,7 +41,7 @@ As you can tell, Datu has ADHD, and she's hilarious.
 
 I don't know how to define different stages of a relationship. Right now I oscillate between "I know my boyfriend really well since we talked a lot when we were just 'friends'!" and "Damn I only know this person for 4 months, I don't think I know that much."
 
-In terms of future plan, I am just genuinely lost. The nature of applying to a PhD program is that you just will never know where you end up to be, especially when you are an international student with mediocre performance in class (I do need to blame myself for this, since I should have cared more). Right now, there's not much I can do. It is scary, and the only reasonable solution is to enjoy the moments...
+In terms of future plan, I am just genuinely lost. The nature of applying to a PhD program is that you just won't know where you will end up to be, especially when you are an international student with mediocre performance in class (I do need to blame myself for this, since I should have cared more). Right now, there's not much I can do. It is scary, and the only reasonable solution is to enjoy the moments...
 
 After all, I'm only 22. 
 
@@ -49,13 +49,13 @@ After all, I'm only 22.
 
 "My boyfriend has been terrible."
 
-I can't recall what he said word by word, but that's how he summarized himself in the past week, as we were walking to Prof Gully's office hour together on Richmond road.
+I can't recall what he said verbatim, but that's how he summarized himself after staying at my place for a week, as we were walking to Prof Gully's office hour together on Richmond road.
 
-I mean, he's not wrong... He was in a terrible state of mind. I am concerned, but there's not much I can do besides what I have done. I don't treat it as a responsibility. I think it's more of what would happen if I live with anyone who's struggling.
+I mean, he's not wrong... He was in a terrible state of mind. I was concerned, but there was not much I could do besides what I have done. I don't treat it as a responsibility. I think it's more of what would happen if I live with anyone who's struggling.
 
-Rationally, I don't like it either. I enjoy cooking but not cleaning, taking care of people but usually from a distance. I won't mind figuring out a solution, but I don't even know what the problem is. And then I realize my boyfriend does have a lot of insecurities (and trust issues, which is as expected), and so explaining to him why exactly I keep doing what I was doing was hard. In its form, it reminds both of us of what a traditioanl housewife would do, which is not great. 
+Rationally, I don't like it either. I enjoy cooking but not cleaning, taking care of people but usually from a distance. I won't mind figuring out a solution, but I don't even know what the problem was. And then I realized that my boyfriend does have a lot of insecurities (and trust issues, which is as expected), and so explaining to him why exactly I keep doing what I was doing was hard. In its form, it reminds both of us of what a traditioanl housewife would do, which is not great. However, I also thought that he was not quite functioning, and so it would be easier if I finished certain chores before he went ahead and stress about them. 
 
-I constantly oscillated between "I need to take time off" and "I really want to stay with him". The good news is according to my textbook, my relationship with my mom could be categorized as secure attachment, and so there's way less drama than there could be had I become as insecure. My only constant concern is more related to imposter syndrome--what if I can't keep my rationality and screw up? 
+My brain wandered between "I need to take time off" and "I really want to stay with him". The good news is according to my textbook, my relationship with my mom could be categorized as secure attachment, and so there's way less drama than there could be had I become as insecure. My only constant concern is more related to imposter syndrome--what if I can't keep my rationality and screw up? 
 
 According to my boyfriend, I seem to be overly reasonable to the point that's unreal. OOF
 
@@ -63,16 +63,16 @@ According to my boyfriend, I seem to be overly reasonable to the point that's un
 
 It is crazy how we basically lived together and we have been dating for barely a month (of course it's temporary). Everyone including me would say it's a horrible idea, and so the fact that I did enjoy most part of it was...crazy too. It definitely still is different from actually moving together (I have some down time to do cleanings etc and I don't need to worry about the bills), but you do get to know each other really well this way. Now I do understand why moving together before marriage is deemed as a very serious thing to do in China. It really is less about sex. Essentially the distance (quite literally and metaphorically) becomes so close that if it's not for a long-term committed relationship (and the only form being marriage in China), there's no clear explanation for it. 
 
-In our case, it's two traumatized people learning adulting and adapting to each other's existence, which is easier than I expected. 
+In our case, it's two traumatized people learning adulting and adapting to each other's existence (and absence), which is easier than I expected. 
 
 
 ---
 
-I did not open this document just to complain about relaitonship problems (to my boyfriend). That's senseless. I started to write it so that I can capture my thoughts, especially things I struggled with. Each time I opened it, I editted what I wrote before (things I have addressed). Then it feels impossible to finish, since if I already know my concern, I would just address it. I finally gave up on the idea of compile a list of things that perfectly capture the time-being, and so these are just some fragments of time. 
+I did not open this document just to complain about relaitonship problems (especially when I know my boyfriend will eventually read it, and he's a professional overthinker). That's just senseless. I started to write it so that I can capture my thoughts, especially things I struggled with. Each time I opened it, I editted what I wrote before (getting rid of things I have addressed). Then it feels impossible to finish, since if I already know my concern, I would just solve it. I finally gave up on the idea of compile a list of things that perfectly capture the time-being, and so these are just some fragments of time. 
 
 Being with him gives me a lot of moment that I am in sync with my actual age emotionally. On this journey I traveled through time, and we met in a beautiful afternoon in July, when neither of us knew that we would be in love despite all of the doubts. 
 
-I think most of the "questions" comes down to the fact that we should probably just enjoy the current moment, but we clearly want more than that (that's an understatement). 
+I think most of the "questions" comes down to the fact that we should probably just enjoy the current moment, but we clearly want more than that (that's an understatement). We also don't know what we want. 
 
 
 > Ich geh mit dir wohin du willst  
