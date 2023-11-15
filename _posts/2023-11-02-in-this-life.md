@@ -70,12 +70,14 @@ In our case, it's two traumatized people learning adulting and adapting to each 
 
 I did not open this document just to complain about relaitonship problems (especially when I know my boyfriend will eventually read it, and he's a professional overthinker). That's just senseless. I started to write it so that I can capture my thoughts, especially things I struggled with. Each time I opened it, I editted what I wrote before (getting rid of things I have addressed). Then it feels impossible to finish, since if I already know my concern, I would just solve it. I finally gave up on the idea of compile a list of things that perfectly capture the time-being, and so these are just some fragments of time. 
 
-Being with him gives me a lot of moment that I am in sync with my actual age emotionally. On this journey I traveled through time, and we met in a beautiful afternoon in July, when neither of us knew that we would be in love despite all of the doubts. 
+Being with him gives me a lot of moment that I am in sync with my actual age emotionally. Sometimes I delve back to my memory, and it feels like time travel. Many times I returend to that beautiful but exhausting afternoon in July, when neither of us knew that we would be in love despite all of the doubts. 
 
-I think most of the "questions" comes down to the fact that we should probably just enjoy the current moment, but we clearly want more than that (that's an understatement). We also don't know what we want. 
+Most of the "questions" come down to the fact that we know all we can do is enjoying the moment, but we are clearly seeking something more (that's an understatement). 
+
+And so Nena wrote,
 
 
-> Ich geh mit dir wohin du willst  
-Auch bis ans Ende dieser Welt  
-Am Meer, am Strand wo Sonne scheint  
-Will ich mit dir alleine sein  
+> *Ich geh mit dir wohin du willst*  
+*Auch bis ans Ende dieser Welt*  
+*Am Meer, am Strand wo Sonne scheint*  
+*Will ich mit dir alleine sein*  
