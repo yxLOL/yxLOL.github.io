@@ -5,7 +5,7 @@ category: notes
 layout: post
 ---
 
-Having a boyfriend has never been part of my plan for college. It's not that I've never envisioned myself with one (I am in fact attracted to men, but usually it's not an actual person). It just seems unreal. Masculinity deters me probably because I do not know how to react to it (my dad's absence in my upbringing probably contributed a lot). It is also hard for me to define masculinity--after all it is a human construct, and it does not exclusively belongs to men. I see it in women sometimes, and thanks to my mom I have mixed feelings about it. 
+Having a boyfriend has never been part of my plan for college. It's not that I've never envisioned myself with one (I am in fact attracted to men, but usually it's not an actual person). It just seems unreal. Masculinity deters me probably because I do not know how to react to it (my dad's absence in my upbringing probably contributed a lot). It is also hard for me to define masculinity--after all it is a human construct, and it does not exclusively belongs to men. I see it in women sometimes, and thanks to my mom I have mixed feelings about it. (**edit from September, 2024: now I learned in class that just because it's a construct doesn't mean it's not important and ignore it. We should probably focus on the power dynamics in terms of the violence behind its politics etc. but then that's not the topic of discussion here**)
 
 Now that I do have a boyfriend--what a surprise. I do not know what to do. I really don't. Are we supposed to talk? Yes. What should we talk about? Childhood? Probably not. Interests? We know the answers already. Films, China, the U.S, white people, activism, how we hate the school, Williamsburg, etc. 
 
@@ -55,16 +55,15 @@ I mean, he's not wrong... He was in a terrible state of mind. I was concerned, b
 
 Rationally, I don't like it either. I enjoy cooking but not cleaning, taking care of people but usually from a distance. I won't mind figuring out a solution, but I don't even know what the problem was. And then I realized that my boyfriend does have a lot of insecurities (and trust issues, which is as expected), and so explaining to him why exactly I keep doing what I was doing was hard. In its form, it reminds both of us of what a traditioanl housewife would do, which is not great. However, I also thought that he was not quite functioning, and so it would be easier if I finished certain chores before he went ahead and stress about them. 
 
-My brain wandered between "I need to take time off" and "I really want to stay with him". The good news is according to my textbook, my relationship with my mom could be categorized as secure attachment, and so there's way less drama than there could be had I become as insecure. My only constant concern is more related to imposter syndrome--what if I can't keep my rationality and screw up? 
+My brain wandered between "I need to take time off" and "I really want to stay with him". The good news is according to my textbook, my relationship with my mom could be categorized as secure attachment, and so there's way less drama than there could be had I become as insecure (**another note from September, 2024: Nope it's anxious if not anxious-avoidant**). My only constant concern is more related to imposter syndrome--what if I can't keep my rationality and screw up? 
 
 According to my boyfriend, I seem to be overly reasonable to the point that's unreal. OOF
 
 ---
 
-It is crazy how we basically lived together and we have been dating for barely a month (of course it's temporary). Everyone including me would say it's a horrible idea, and so the fact that I did enjoy most part of it was...crazy too. It definitely still is different from actually moving together (I have some down time to do cleanings etc and I don't need to worry about the bills), but you do get to know each other really well this way. Now I do understand why moving together before marriage is deemed as a very serious thing to do in China. It really is less about sex. Essentially the distance (quite literally and metaphorically) becomes so close that if it's not for a long-term committed relationship (and the only form being marriage in China), there's no clear explanation for it. 
+It is crazy how we basically lived together and we have been dating for barely a month (of course it's temporary). Everyone including me would say it's a horrible idea, and so the fact that I did enjoy most part of it was...crazy too. It definitely still is different from actually moving together (I have some down time to do cleanings etc and I don't need to worry about the bills), but you do get to know each other really well this way. Now I do understand why moving together before marriage is deemed as a very serious thing in China. It really is less about sex. Essentially the distance (quite literally and metaphorically) becomes so close that if it's not for a long-term committed relationship (and the only form being marriage in China), there's no clear justification for it. 
 
 In our case, it's two traumatized people learning adulting and adapting to each other's existence (and absence), which is easier than I expected. 
-
 
 ---
 
