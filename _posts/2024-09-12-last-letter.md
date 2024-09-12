@@ -5,6 +5,7 @@ category: notes
 layout: post
 ---
 
+*Hi there,*
 
 I’m writing this as I tried to work next to you, because I just can’t ignore my emotions and thoughts about the break up. It seems that the common theme of me writing is I need to do work, but I can’t. Please don’t worry about any special intention of this letter—as any other letters I’ve given you, I just want to express myself in an honest way. I don’t intend to use the letter to get you back or push you away. I just can’t say this in person, because I don’t know if I will be able to express it without too much emotions, and yes sometimes I overthink how you will take things too, so I guess you can say this is my way of avoiding having to face that directly. I don’t want to just talk about myself though, since that’s the last thing you need right now, not to say you need much from me really. You made such an effort to give me the closure I really need, and I want to do the same, but from my perspective. 
 
@@ -35,4 +36,4 @@ Well, not to anyone’s surprise, this letter is getting too long. I had to writ
 Please take care.
 
 Sincerely, 
-Your best friend who's struggling with grammar and tends to repeat things today
+*Your best friend who's struggling with grammar and tends to repeat things today*
